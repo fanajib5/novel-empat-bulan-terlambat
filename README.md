@@ -4,7 +4,7 @@
 
 **Target**: Novel dewasa 18+, Wattpad, 250-300 halaman
 
-**Status**: Development
+**Status**: Pre-writing Complete
 
 ## Synopsis
 
@@ -45,13 +45,13 @@ novel-empat-bulan-terlambat/
 
 - [x] Premis dan konsep dasar
 - [x] Project specs (ending, eksplisit level, POV)
-- [ ] Character sheets lengkap
-- [ ] Outline detail per chapter
+- [x] Character sheets lengkap
+- [x] Outline detail per chapter (25 chapters, scene-by-scene)
 - [ ] Draft chapter 1
 
 ## Project Specs
 - **Ending**: Bittersweet
 - **Eksplisit Level**: 3/5 (sensual, eksplisit saat perlu, tapi fokus emosi)
-- **POV**: Third person limited (Shintia) atau First person (Shintia)
+- **POV**: First person (Shintia)
 - **Platform**: Wattpad
 - **Berdasarkan**: Kisah nyata (nama asli digunakan dengan izin)
