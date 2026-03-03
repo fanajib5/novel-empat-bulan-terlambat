@@ -53,6 +53,7 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 4: Pesan Pertama (~3,300 kata)
 - [x] Draft chapter 5: Pertemuan Rahasia (~3,000 kata)
 - [x] Draft chapter 6: Dosa Kecil (~3,200 kata) — FIRST KISS
+- [x] Draft chapter 7: Lebih (~3,200 kata) — FIRST TIME INTIMATE
 
 ## Project Specs
 - **Ending**: Bittersweet
