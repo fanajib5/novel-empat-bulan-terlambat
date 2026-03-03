@@ -15,9 +15,37 @@
 
 **Catatan penting**:
 - Periode pesantren: 2010-2016
+- **Lokasi pesantren**: Mantingan, Nganjuk, Jawa Timur
 - Teknologi: Nokia feature phone, SMS, **TIDAK ADA WhatsApp/smartphone**
 - Social media belum dominan di Indonesia saat itu
 - Facebook mulai populer tapi belum WhatsApp/Instagram
+
+---
+
+## Setting Lokasi
+
+### Pesantren An-Nur (Fiktif berbasis Mantingan)
+- **Lokasi**: Mantingan, Kabupaten Nganjuk, Jawa Timur
+- **Karakteristik daerah**:
+  - Pedesaan Jawa Timuran, agraris
+  - Iklim tropis dengan dua musim (hujan dan kemarau)
+  - Akses transportasi: bus antar kota, angkot lokal
+  - Bahasa sehari-hari: Jawa Nganjukan (dialek Arekan)
+- **Pesantren di Mantingan/Nganjuk**:
+  - Banyak pesantren terkenal di Nganjuk (Attahdzib, dll)
+  - Budaya santri kuat, konservatif
+  - Komunitas pesantren saling kenal antar kabupaten
+
+### Geografis Sekitar Pesantren
+- Sawah dan kebun di sekitar kompleks
+- pasar tradisional di pusat kecamatan
+- Klinik/bidan di Mantingan atau Nganjuk kota
+- Akses ke Surabaya ±2-3 jam
+
+### Kos Shintia (Setelah Keluar Pesantren)
+- Kemungkinan di sekitar Nganjuk kota atau Surabaya
+- Area kumuh, sewa murah
+- Akses ke bidan/puskesmas untuk persalinan
 
 ---
 
