@@ -47,7 +47,7 @@ novel-empat-bulan-terlambat/
 - [x] Project specs (ending, eksplisit level, POV)
 - [x] Character sheets lengkap
 - [x] Outline detail per chapter (25 chapters, scene-by-scene)
-- [ ] Draft chapter 1
+- [x] Draft chapter 1: Santri (~3,000 kata)
 
 ## Project Specs
 - **Ending**: Bittersweet
