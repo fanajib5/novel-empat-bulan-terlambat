@@ -49,6 +49,7 @@ novel-empat-bulan-terlambat/
 - [x] Outline detail per chapter (25 chapters, scene-by-scene)
 - [x] Draft chapter 1: Santri (~3,000 kata)
 - [x] Draft chapter 2: Pertemuan (~3,200 kata)
+- [x] Draft chapter 3: Nama (~3,100 kata)
 
 ## Project Specs
 - **Ending**: Bittersweet
