@@ -25,25 +25,26 @@
 ## Setting Lokasi
 
 ### Pesantren An-Nur (Fiktif berbasis Mantingan)
-- **Lokasi**: Mantingan, Kabupaten Nganjuk, Jawa Timur
+- **Lokasi**: Mantingan, Kabupaten Ngawi, Jawa Timur
+- **Catatan**: Mantingan adalah lokasi asli, untuk privasi cerita sedikit digeser ke desa sebelahnya (fiktif)
 - **Karakteristik daerah**:
   - Pedesaan Jawa Timuran, agraris
   - Iklim tropis dengan dua musim (hujan dan kemarau)
   - Akses transportasi: bus antar kota, angkot lokal
-  - Bahasa sehari-hari: Jawa Nganjukan (dialek Arekan)
-- **Pesantren di Mantingan/Nganjuk**:
-  - Banyak pesantren terkenal di Nganjuk (Attahdzib, dll)
+  - Bahasa sehari-hari: Jawa Mataraman (dialek Ngawi)
+- **Pesantren di Ngawi**:
+  - Banyak pesantren terkenal di Ngawi
   - Budaya santri kuat, konservatif
   - Komunitas pesantren saling kenal antar kabupaten
 
 ### Geografis Sekitar Pesantren
 - Sawah dan kebun di sekitar kompleks
-- pasar tradisional di pusat kecamatan
-- Klinik/bidan di Mantingan atau Nganjuk kota
-- Akses ke Surabaya ±2-3 jam
+- Pasar tradisional di pusat kecamatan
+- Klinik/bidan di Mantingan atau Ngawi kota
+- Akses ke Surabaya ±2-3 jam via Madiun
 
 ### Kos Shintia (Setelah Keluar Pesantren)
-- Kemungkinan di sekitar Nganjuk kota atau Surabaya
+- Kemungkinan di sekitar Ngawi kota, Madiun, atau Surabaya
 - Area kumuh, sewa murah
 - Akses ke bidan/puskesmas untuk persalinan
 
