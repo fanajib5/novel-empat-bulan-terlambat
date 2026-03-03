@@ -50,6 +50,7 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 1: Santri (~3,000 kata)
 - [x] Draft chapter 2: Pertemuan (~3,200 kata)
 - [x] Draft chapter 3: Nama (~3,100 kata)
+- [x] Draft chapter 4: Pesan Pertama (~3,300 kata)
 
 ## Project Specs
 - **Ending**: Bittersweet
