@@ -56,6 +56,7 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 7: Lebih (~3,200 kata) — FIRST TIME INTIMATE
 - [x] Draft chapter 8: Rahasia yang Mengembang (~3,100 kata) — PREGNANCY DISCOVERY
 - [x] Draft chapter 9: Menyembunyikan (~3,000 kata) — HIDING PREGNANCY
+- [x] Draft chapter 10: Kelahiran (~3,300 kata) — ARGA BORN — ACT 1 COMPLETE
 
 ## Project Specs
 - **Ending**: Bittersweet
