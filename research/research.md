@@ -1,5 +1,26 @@
 # Research: Empat Bulan Terlambat
 
+## Timeline Spesifik
+
+| Periode | Event | Usia Shintia |
+|---------|-------|--------------|
+| 1998 | Shintia lahir | 0 |
+| 2010-2011 | Masuk pesantren, kelas 1 SMP | 12-13 |
+| 2015-2016 | Kelas akhir (SMA), events novel terjadi | 17-18 |
+| 2016 | Keluar pesantren, hamil Arga | 18 |
+| 2016-2017 | Membesarkan Arga sendirian di kos | 18-19 |
+| 2017 | Hamil Rayyan, menikah dengan Raka | 19 |
+| 2017 | Rayyan lahir (4 bulan setelah nikah) | 19 |
+| 2026 | Present, Shintia usia 28 | 28 |
+
+**Catatan penting**:
+- Periode pesantren: 2010-2016
+- Teknologi: Nokia feature phone, SMS, **TIDAK ADA WhatsApp/smartphone**
+- Social media belum dominan di Indonesia saat itu
+- Facebook mulai populer tapi belum WhatsApp/Instagram
+
+---
+
 ## 1. Kehidupan Pesantren (Umum)
 
 ### Struktur Pesantren
