@@ -1,4 +1,4 @@
-# Chapter 20: Arga
+# Chapter 21: Arga
 
 Arga pulang sekolah dengan wajah penuh pertanyaan.
 
@@ -204,4 +204,4 @@ Tapi kurasa juga: suatu hari, dia akan tahu. Suatu hari, dia akan bertanya lagi.
 
 ---
 
-**— Chapter 20 selesai —**
+**— Chapter 21 selesai —**

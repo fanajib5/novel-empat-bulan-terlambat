@@ -1,4 +1,4 @@
-# Chapter 23: Safina
+# Chapter 24: Safina
 
 Safina mengirim WA di tengah hari.
 
@@ -210,4 +210,4 @@ Jawabannya tidak kusukakan.
 
 ---
 
-**— Chapter 23 selesai —**
+**— Chapter 24 selesai —**

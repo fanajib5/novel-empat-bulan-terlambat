@@ -1,4 +1,4 @@
-# Chapter 24: Konfrontasi
+# Chapter 25: Konfrontasi
 
 Arga datang dari sekolah dengan wajah yang berbeda.
 
@@ -234,4 +234,4 @@ Tapi cukup untuk sekarang.
 
 ---
 
-**— Chapter 24 selesai —**
+**— Chapter 25 selesai —**

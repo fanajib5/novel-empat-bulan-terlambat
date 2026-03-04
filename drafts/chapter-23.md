@@ -1,4 +1,4 @@
-# Chapter 22: Raka
+# Chapter 23: Raka
 
 Raka pulang kerja dengan rekan kerja.
 
@@ -202,4 +202,4 @@ Apakah aku... ingin tetap di sini?
 
 ---
 
-**— Chapter 22 selesai —**
+**— Chapter 23 selesai —**

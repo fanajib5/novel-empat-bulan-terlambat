@@ -1,4 +1,4 @@
-# Chapter 25: Cermin
+# Chapter 26: Cermin
 
 Malam setelah konfrontasi, rumah sunyi.
 
@@ -260,5 +260,5 @@ Dan terus berjalan.
 
 ---
 
-**— Chapter 25 selesai —**
+**— Chapter 26 selesai —**
 **— EMPAT BULAN TERLAMBAT selesai —**

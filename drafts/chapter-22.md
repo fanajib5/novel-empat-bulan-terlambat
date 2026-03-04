@@ -1,4 +1,4 @@
-# Chapter 21: Tetangga
+# Chapter 22: Tetangga
 
 Hari Sabtu, ada acara arisan RT.
 
@@ -208,4 +208,4 @@ Aku sudah menikah. Aku sudah "diperbaiki". Tapi bagi mereka, aku tetap sama.
 
 ---
 
-**— Chapter 21 selesai —**
+**— Chapter 22 selesai —**

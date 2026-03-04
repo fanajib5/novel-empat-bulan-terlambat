@@ -1,4 +1,4 @@
-# Chapter 19.5: Guru
+# Chapter 20: Guru
 
 Jam enam pagi, aku sudah berangkat.
 
@@ -230,4 +230,4 @@ Aku guru. Anak-anak ini menyukaiku. Itu cukup.
 
 ---
 
-**— Chapter 19.5 selesai —**
+**— Chapter 20 selesai —**
