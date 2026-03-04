@@ -1,207 +1,264 @@
-# Chapter 20: Arga
+# Chapter 25: Cermin
 
-Arga pulang sekolah dengan wajah penuh pertanyaan.
+Malam setelah konfrontasi, rumah sunyi.
 
-Bukan wajah biasa—biasanya dia ceria, bercerita tentang apa yang terjadi di kelas. Hari ini dia sunyi, memikirkan sesuatu.
+Arga tidur—lelah dari menangis, lelah dari kebenaran yang terlalu berat. Rayyan tidur juga—tidak tahu apa-apa, bahagia dalam ketidaktahuan.
 
-"Gimana sekolah?" aku bertanya saat dia duduk di meja makan.
+Raka di ruang tamu, menonton TV tanpa benar-benar menonton.
 
-"Lumayan," jawabnya pendek.
-
-Tidak ada cerita. Tidak ada tawa. Hanya jawaban pendek.
-
-Aku menatapnya—anak sulungku yang sekarang sembilan tahun. Anak yang lahir di kamar mandi pesantren. Anak yang akta kelahirannya tanpa nama ayah.
-
-Anak yang, semakin besar, semakin banyak bertanya.
+Aku di kamar mandi, menatap cermin.
 
 ---
 
-Setelah makan siang, Arga duduk di ruang tamu dengan buku foto keluarga.
+Wajah yang sama.
 
-Buku yang jarang dibuka—foto-foto lama yang dikumpulkan dari sini dan sana. Ada foto Arga saat kecil. Ada foto Rayyan saat bayi. Ada foto pernikahan kami—hitam putih, wajah datar.
+Sepuluh tahun, dan wajahku tidak banyak berubah. Masih muda. Masih... cantik, menurut beberapa orang. Tapi ada sesuatu yang berbeda.
 
-Ada juga foto-foto yang tidak ada.
+Mata yang lebih tenang. Garis halus di dahi. Bibir yang tidak sering tersenyum, tapi saat tersenyum... lebih tulus.
 
-Tidak ada foto Shintia masa SMA. Tidak ada foto Shintia di pesantren. Tidak ada foto masa sebelum Arga.
+Aku menatap diri sendiri—perempuan yang dulu santri, hamil di luar nikah, diusir dari pesantren. Perempuan yang kemudian jadi istri, jadi ibu, jadi "dimaafkan."
 
-"Ma," Arga berkata tiba-tiba. "Kenapa foto Mama waktu SMA jarang?"
+Perempuan yang sepuluh tahun kemudian, masih... sama.
 
-Jantungku berdegup kencang.
-
-"Hilang," jawabku cepat. "Waktu pindah-pindah."
-
-"Pindah ke mana?"
-
-"Ke kos. Ke sini. Banyak pindahan." Aku berbalik, berpura-pura sibuk di dapur. "Kenapa pengin lihat foto lama?"
-
-"Pengin lihat Mama waktu muda."
-
-Aku menelan, tidak bisa berkata.
+Tapi juga berbeda.
 
 ---
 
-Malam, setelah Rayyan tidur, Arga duduk di sampingku di ruang tamu.
+Aku cuci muka dengan air dingin.
 
-Raka belum pulang—kerja lembat, mungkin. Hanya kami berdua, dengan suara TV pelan di latar belakang.
+Menghapus riasan tipis yang kusuntuk malam sebelumnya. Menghapus... semua.
 
-"Ma," Arga berkata pelan. "Temenku bilang sesuatu."
+Saat aku menatap cermin lagi, tanpa riasan, tanpa senyuman, tanpa pura-pura... aku melihat sesuatu yang belum pernah kulihat.
 
-Aku menoleh ke anakku, mencoba wajah tenang.
+Aku melihat diriku sendiri.
 
-"Apa?"
+Bukan "perempuaan yang salah." Bukan "ibu dari anak haram." Bukan "istri yang ditoleransi."
 
-"Temenku bilang... anak pertama itu harusnya lahir setelah mama menikah setahun."
+Hanya... aku.
 
-Darahku membeku.
+Shintia.
 
-"Siapa yang bilang?"
-
-"Temenku, Dimas. Dia bilang itu yang normal. Kalau lahir duluan... itu... dia nggak lanjut."
-
-Aku menatap Arga—wajah polos yang mencoba memahami sesuatu yang tidak bisa dia mengerti.
-
-"Dia cuma bilang gitu," Arga melanjutkan. "Aku nggak ngerti."
-
-Aku tidak bisa menjawab. Tidak bisa berkata apa-apa.
+Perempuan dua puluh delapan tahun. Perempuan yang membuat pilihan—baik dan buruk, benar dan salah. Perempuan yang hidup dengan konsekuensi. Perempuan yang... bertahan.
 
 ---
 
-Pintu terbuka. Raka masuk, wajah lelah.
+Aku ingat Safina berkata: *Kamu berhak bahagia.*
 
-Dia menatap kami—aku dan Arga duduk berdampingan. Menatap ketegangan yang jelas di ruangan. Menatap sesuatu yang terjadi sebelum dia datang.
+Saat itu, aku tidak mengerti. Bahagia itu apa? Sesuatu yang bisa diambil? Diraih? Dimiliki?
 
-"Apa yang terjadi?" dia bertanya.
+Tapi sekarang, menatap cermin kamar mandi yang remang, aku mulai mengerti.
 
-Tidak ada yang menjawab.
+Bahagia bukan sesuatu yang diberikan orang lain.
 
-Raka menatapku, lalu Arga. Matanya menyadari—terlalu cepat, terlalu tajam.
+Bahagia bukan sesuatu yang datang dari maaf, dari penerimaan, dari "penyucian dosa."
 
-"Arga, bilang sama Papa apa yang kamu bicarakan."
+Bahagia adalah... pilihan.
 
-Arga menatap ayahnya, lalu kembali kepadaku.
-
-"Cuma... cuma tanya soal... soal waktu lahir," bisiknya.
-
-Raka menatapku—ada warning di matanya. *Jangan cerita. Jangan jelaskan. Jangan...*
-
-Aku mengangguk pelan, mengerti.
+Pilihan untuk melihat dirimu sendiri dengan mata yang tidak menghakimi. Pilihan untuk menerima bahwa kamu pernah salah, tapi itu tidak membuatmu selamanya salah. Pilihan untuk... tetap ada.
 
 ---
 
-Arga tidak lanjutkan pertanyaan.
+Aku ingat semua yang terjadi sepuluh tahun terakhir.
 
-Dia berdiri, kembali ke kamar, menutup pintu pelan. Tapi aku tahu—aku tahu dia tidak percaya. Dia sembilan tahun, bukan bodoh. Dia tahu ada sesuatu yang disembunyikan.
+Malam di kamar mandi pesantren—darah, air, tangisan Arga yang pertama. Malam itu, aku pikir dunia sudah berakhir.
 
-Raka duduk di sampingku, wajah masih lelah.
+Tapi tidak.
 
-"Apa yang dia tanya?"
+Aku ingat kos yang sempit, uang yang tidak pernah cukup, Arga yang menangis tanpa henti. Saat itu, aku pikir aku tidak akan bertahan.
 
-Aku menatap suamiku—lelaki yang selalu takut kebenaran terungkap. Lelaki yang tidak pernah benar-benar siap untuk konsekuensi.
+Tapi aku bertahan.
 
-"Soal... soal lahir duluan," jawabku pelan.
+Aku ingat pernikahan tanpa kebahagiaan—akad yang dingin, malam pertama yang kosong, sepuluh tahun pernikahan yang... survive.
 
-Raka menghela napas, menutup mata.
-
-"Apa kamu jawab?"
-
-"Tidak."
-
-"Bagus." Raka berdiri, berjalan ke kamar mandi. "Jangan pernah jawab."
-
-Aku menatap punggungnya—lelaki yang menikahi aku karena terpaksa. Lelaki yang sekarang takut anaknya sendiri tahu kebenaran.
-
-Dan aku menyadari: kami tidak akan bisa menyembunyikan selamanya.
+Tapi ada anak-anak. Arga dan Rayyan. Anak-anak yang tidak minta lahir, tapi ada. Anak-anak yang mencintaiku tanpa syarat. Anak-anak yang... cukup.
 
 ---
 
-Pagi hari, Arga bertanya lagi.
+Safina berkata: *Kamu berhak bahagia.*
 
-Saat sarapan, saat Raka sudah berangkat kerja. Hanya kami berdua dan Rayyan yang sibuk dengan makanannya.
+Aku menatap cermin, menatap mata sendiri.
 
-"Ma," Arga berkata pelan. "Papa marah kemarin?"
+Apakah aku bahagia?
 
-"Tidak."
+Jujur? Aku tidak tahu. Bahagia itu kata yang terlalu besar, terlalu abstrak. Yang kutahu: aku ada. Aku bertahan. Aku punya anak-anak yang mencintaiku. Aku punya rumah, walaupun bukan milikku. Aku punya suami, walaupun pernikahan kami tanpa cinta.
 
-"Tapi Papa kelihatan... sedih."
+Aku punya... kehidupan.
 
-Aku menatap anakku—anak yang lebih peka dari yang kusangka.
+Mungkin itu bukan bahagia. Tapi cukup.
 
-"Papa tidak marah. Cuma... capek."
-
-"Kenapa?"
-
-Aku tidak bisa menjawab. Karena jawabannya panjang. Jawabannya melibatkan ultimatum polisi, pernikahan terpaksa, sepuluh tahun pernikahan tanpa cinta.
-
-Jawabannya melibatkan kebenaran yang Arga belum siap dengar.
+Cukup untuk tetap ada. Cukup untuk terus berjuang. Cukup untuk... tidak menyerah.
 
 ---
 
-Di sekolah, aku antar Arga seperti biasa.
+Aku tersenyum ke cermin.
 
-Tapi hari ini, dia berhenti sebelum masuk gerbang.
+Bukan senyum untuk orang lain. Bukan senyum untuk menyenangkan. Bukan senyum yang pura-pura.
 
-"Ma," dia berkata. "Aku sayang sama Ma."
+Senyum kecil, tipis, tapi... tulus.
 
-Aku menatapnya, terkejut. "Aku juga sayang sama kamu, Nak."
+Senyum untuk diriku sendiri.
 
-"Dan sama Papa. Dan sama Rayyan."
-
-Aku mengangguk, tidak mengerti ke mana arah percakapan.
-
-"Tapi..." Arga berhenti, memilih kata. "Tapi kalau... kalau ada sesuatu yang Ma dan Papa sembunyikan... aku juga tetap sayang."
-
-Jantungku berhenti.
-
-"Arga—"
-
-"Aku nggak tahu apa," dia melanjutkan cepat. "Dan aku nggak mau tahu. Kalau Ma dan Papa mau sembunyikan, aku... aku oke aja."
-
-Dia memelukku—pelukan cepat, pelan, lalu melepaskan.
-
-"Assalamualaikum, Ma."
-
-"Waalaikumsalam, Nak."
-
-Aku menatap Arga berjalan masuk ke sekolah—punggung kecil yang semakin memanjang, langkah yang semakin yakin.
-
-Anakku yang lahir di kamar mandi. Anakku yang akta lahir tanpa ayah. Anakku yang, tanpa kusadari, sudah tahu—atau paling tidak, sudah curiga—bahwa ada sesuatu yang salah.
-
-Tapi dia tetap bilang: aku sayang.
-
-Aku menatap pintu sekolah yang sudah tertutup, air mata mengalir tanpa kusadari.
+Senyum yang berkata: kamu sudah bertahan. Kamu sudah ada. Kamu sudah... cukup.
 
 ---
 
-Malam, Raka bertanya: "Apa yang dia bilang?"
+Aku keluar dari kamar mandi.
 
-Aku menatap suamiku—lelaki yang selalu takut.
+Berjalan ke ruang keluarga, dimana suami dan dua anakku ada.
 
-"Dia bilang... dia tetap sayang."
+Raka menonton TV—biasa, datar, tidak ada yang berubah. Tapi saat aku lewat, dia menoleh. Sekilas. Sepertinya mau bilang sesuatu, tapi tidak.
+
+Arga tidur di sofa—kepalanya di bantal kecil, nafas teratur. Setelah hari ini, setelah kebenaran yang terlalu berat, dia tidur damai.
+
+Rayyan juga tidur—di lantai, dengan selimut, tidak tahu apa-apa tentang apa yang terjadi hari ini.
+
+---
+
+Aku duduk di samping Raka.
+
+Tidak dekat. Tidak jauh. Hanya... di samping.
+
+Sepuluh tahun kami duduk seperti ini. Berdekatan tapi jauh. Menikah tapi sendirian. Hidup tapi... survive.
+
+Tapi malam ini, ada sesuatu yang berbeda.
+
+Aku tidak melihat diriku sebagai "istri yang dimaafkan." Aku tidak melihat diriku sebagai "perempuan yang salah." Aku tidak melihat diriku sebagai "dosa yang harus ditobatkan."
+
+Aku melihat diriku sebagai... aku.
+
+Shintia. Perempuan dua puluh delapan tahun. Perempuan yang pernah membuat pilihan yang salah. Perempuan yang pernah menderita konsekuensinya. Perempuan yang sekarang... di sini.
+
+Masih di sini.
+
+---
+
+Raka menoleh lagi.
+
+Kali ini, dia benar-benar menatapku. Tidak sekilas. Tidak pura-pura.
+
+"Shintia," dia berkata pelan.
+
+"Iya."
+
+Dia menatapku lama—seperti mencoba memahami sesuatu yang tidak pernah dia mengerti sebelumnya.
+
+"Aku... aku maafin ya."
+
+Aku menatap suamiku—lelaki yang sepuluh tahun terpaksa menikahi aku. Lelaki yang tidak pernah benar-benar siap. Lelaki yang, hari ini, akhirnya menyadari apa yang seharusnya dilakukannya.
+
+"Untuk apa?" tanyaku pelan.
+
+"Semua." Raka menunduk. "Untuk... untuk tidak jadi ayah yang baik. Untuk cuma... pura-pura."
+
+Aku menatapnya. Tidak ada kata cinta di sana. Tidak ada janji yang muluk-muluk. Hanya pengakuan. Pengakuan yang terlambat, tapi... ada.
+
+"Aku juga," aku berkata pelan. "Aku juga maafin."
 
 Raka menatapku, bingung.
 
-"Apa?"
+"Untuk?" dia bertanya.
 
-"Apa pun yang kita sembunyikan, dia bilang dia tetap sayang."
+"Untuk... untuk tidak jadi istri yang baik. Untuk cuma... survive juga."
 
-Raka diam lama. Menatap TV, lalu ke meja, lalu ke lantai. Tidak ada yang mau dilihatnya.
+Kami diam. Tidak ada yang bicara. Hanya TV yang masih nyala, menyiapkan acara yang tidak kami tonton.
 
-"Mungkin dia tahu," aku berkata pelan.
-
-"Tidak."
-
-"Papa, mungkin—"
-
-"Tidak!" Raka menoleh, mata tajam. "Dia tidak tahu. Dia cuma... cuma curiga. Tapi dia tidak tahu."
-
-Aku menatapnya—lelaki yang masih, setelah sepuluh tahun, takut kebenaran.
-
-Tapi aku tidak memperdebatkan. Tidak ada gunanya.
-
-Kurasa Raka benar—Arga tidak tahu. Tidak pasti. Cuma curiga.
-
-Tapi kurasa juga: suatu hari, dia akan tahu. Suatu hari, dia akan bertanya lagi. Dan kali ini, kami harus menjawab.
+Tapi di keheningan itu, ada sesuatu yang... tenang.
 
 ---
 
-**— Chapter 20 selesai —**
+Pagi datang.
+
+Arga bangun pertama—mata masih mengantuk, tapi ada senyum tipis di wajahnya.
+
+"Pagi, Ma," dia berkata.
+
+"Pagi, Nak."
+
+Aku menatap anakku—sepuluh tahun, baru tahu kemarin bahwa dia "berbeda." Tapi hari ini, dia masih bangun. Masih tersenyum. Masih... ada.
+
+"Ma?" Arga berkata pelan.
+
+"Iya, Nak."
+
+"Tadi malam... terima kasih ya."
+
+Aku menatapnya, tidak mengerti.
+
+"Terima kasih untuk apa?"
+
+"Terima kasih... terima kasih karena Mama bilang aku anak Mama. Bilang Mama sayang aku."
+
+Air mata mengalir tanpa kusadari.
+
+"Selamanya, Nak," bisikku. "Mama sayang kamu selamanya."
+
+---
+
+Rayyan bangun berikutnya, masih mengantuk, bingung kenapa Arga dan aku menangis.
+
+"Kenapa nangis?" dia bertanya.
+
+"Tidak ada apa-apa," Arga menjawab sebelum aku bisa berkata. "Cuma... cuma senang."
+
+Rayyan mengangguk, tidak mengerti tapi menerima. Anak bungsuku—yang masih tidak tahu apa-apa tentang keluarga kami. Yang masih melihat semuanya dengan mata polos, tanpa penilaian.
+
+---
+
+Aku masuk ke dapur, menyiapkan sarapan.
+
+Rutinitas yang sama. Nasi, telur, teh. Rutinitas yang sepuluh tahun sudah lakukan.
+
+Tapi hari ini, ada sesuatu yang berbeda.
+
+Bukan makanannya. Bukan rutinitasnya.
+
+Bukan... apa pun yang bisa dilihat. Hanya sesuatu di dalam. Sesuatu yang berubah.
+
+Aku menaruh piring di meja, menatap rumah kecil kami. Rumah yang bukan milik kami—rumah dari keluarga Raka. Tapi rumah ini, selama sepuluh tahun, menjadi rumahku.
+
+Menjadi tempat aku... ada.
+
+---
+
+Di jalan, saat antar anak-anak ke sekolah, lelaki lewat.
+
+Menoleh. Lama. Seperti biasa.
+
+Tapi hari ini, aku tidak menunduk. Tidak mempercepat langkah. Tidak berpura-pura tidak melihat.
+
+Aku menoleh balik.
+
+Senyum kecil. Tipis. Tapi ada.
+
+Lelaki itu tertegun sebentar, lalu melanjutkan jalan. Tidak apa-apa. Hanya... senyum balas.
+
+Aku berjalan terus, melangkah lebih ringan.
+
+---
+
+Sepuluh tahun.
+
+Aku masih di sini. Masih istri Raka. Masih ibu Arga dan Rayyan. Masih perempuaan yang dulu hamil di luar nikah, diusir dari pesantren, "dimaafkan" oleh pernikahan.
+
+Tapi sekarang, aku tahu sesuatu yang tidak kuketahui sepuluh tahun lalu:
+
+Aku bukan dosa.
+
+Aku bukan "perempuan yang salah." Aku bukan "ibu dari anak haram." Aku bukan... apa pun yang orang sebut.
+
+Aku cuma aku.
+
+Shintia. Perempuan dua puluh delapan tahun. Perempuan yang pernah membuat pilihan yang salah. Perempuan yang pernah menderita. Perempuan yang sekarang... di sini.
+
+Masih di sini.
+
+Dan saat lelaki menoleh, saat orang menghakimi, saat tetangga bergunjing... aku tidak lagi merasa bersalah.
+
+Aku hanya tersenyum.
+
+Dan terus berjalan.
+
+---
+
+**— Chapter 25 selesai —**
+**— EMPAT BULAN TERLAMBAT selesai —**

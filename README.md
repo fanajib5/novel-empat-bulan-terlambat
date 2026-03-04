@@ -4,7 +4,7 @@
 
 **Target**: Novel dewasa 18+, Wattpad, 250-300 halaman
 
-**Status**: COMPLETE — 25 Chapters (~70,000 words)
+**Status**: COMPLETE — 26 Chapters (~72,500 words)
 
 ## Synopsis
 
@@ -70,7 +70,7 @@ novel-empat-bulan-terlambat/
 
 ### Act 3: Cantik yang Dimaafkan (Chapters 19-26)
 - [x] Draft chapter 19: Sepuluh Tahun (~2,800 kata) — ACT 3 START
-- [x] Draft chapter 19.5: Guru (~2,400 kata) — SHINTIA AS TEACHER
+- [x] Draft chapter 20: Guru (~2,400 kata) — SHINTIA AS TEACHER (NEW)
 - [x] Draft chapter 21: Arga (~2,500 kata) — ARGAS QUESTIONS
 - [x] Draft chapter 22: Tetangga (~2,300 kata) — GOSSIP & JUDGMENT
 - [x] Draft chapter 23: Raka (~2,600 kata) — RAKAS JEALOUSY
