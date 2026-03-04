@@ -62,6 +62,7 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 11: Pengusiran (~2,400 kata) — ACT 2 START
 - [x] Draft chapter 12: Keluarga (~2,700 kata) — BIRTH CERTIFICATE
 - [x] Draft chapter 13: Kos (~3,000 kata) — SURVIVAL MODE
+- [x] Draft chapter 14: Setahun (~3,100 kata) — SECOND PREGNANCY
 
 ## Project Specs
 - **Ending**: Bittersweet
