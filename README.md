@@ -64,6 +64,7 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 13: Kos (~3,000 kata) — SURVIVAL MODE
 - [x] Draft chapter 14: Setahun (~3,100 kata) — SECOND PREGNANCY
 - [x] Draft chapter 15: Ultimatum (~3,000 kata) — POLICE OR MARRY
+- [x] Draft chapter 16: Orang Tua Raka (~2,500 kata) — RELUCTANT ACCEPTANCE
 
 ## Project Specs
 - **Ending**: Bittersweet
