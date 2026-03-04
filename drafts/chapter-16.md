@@ -168,7 +168,7 @@ Malam sebelum akad, Safina WA:
 
 *\"Iya. Minggu ini.\"*
 
-*\"Selamat! Aku... aku seneng banget sama kamu, Shin.* *Semoga bahagia ya.*\"
+*\"Selamat! Aku... aku seneng banget sama kamu, Diii.* *Semoga bahagia ya.*\"
 
 Aku menatap kata "bahagia"—kata yang terasa asing, kata yang tidak kubayangkan akan kudapatkan.
 

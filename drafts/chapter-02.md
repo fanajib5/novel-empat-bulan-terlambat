@@ -48,7 +48,7 @@ Dia... biasa saja. Tidak spesial.
 
 "Aku nggak gitu peduli sama cowok, Saf."
 
-"Ya iyalah, kan kamu." Safina menghela napas teatrikal. "Kamu itu beda, Shin. Kamu nggak perlu peduli sama cowok. Cowok yang pasti peduli sama kamu."
+"Ya iyalah, kan kamu." Safina menghela napas teatrikal. "Kamu itu beda, Dii. Kamu nggak perlu peduli sama cowok. Cowok yang pasti peduli sama kamu."
 
 Aku tidak menjawab. Aku sudah terbiasa dengan komentar-komentar seperti itu. Safina suka mengingatkanku bahwa aku cantik, bahwa laki-laki pasti melihat, bahwa aku harus "jaga diri". Tapi kadang aku merasa dia tidak mengerti—cantik bukan pilihan. Cantik bukan sesuatu yang aku minta.
 

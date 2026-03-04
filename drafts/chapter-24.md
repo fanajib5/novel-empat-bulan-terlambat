@@ -2,7 +2,7 @@
 
 Safina mengirim WA di tengah hari.
 
-*\"Shin, aku di kota. Mau ketemuan?\"*
+*\"Dii, aku di kota. Mau ketemuan?\"*
 
 Aku menatap pesan itu lama—sepuluh tahun, dan masih saja nama ini membangkitkan rasa yang tidak bisa kusebutkan. Nostalgia? Rindu? Atau sesuatu yang lebih rumit?
 

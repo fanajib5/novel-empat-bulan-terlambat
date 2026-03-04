@@ -32,7 +32,7 @@ Di ruang guru, Bu Siti sudah ada.
 
 Kepala sekolah. Perempuan lima puluh tahun dengan wajah tegas tapi mata yang baik.
 
-"Pagi, Shin," dia berkata.
+"Pagi, Di," dia berkata.
 
 "Pagi, Bu."
 
