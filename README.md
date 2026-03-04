@@ -70,6 +70,7 @@ novel-empat-bulan-terlambat/
 
 ### Act 3: Cantik yang Dimaafkan (Chapters 19-25)
 - [x] Draft chapter 19: Sepuluh Tahun (~2,800 kata) — ACT 3 START
+- [x] Draft chapter 20: Arga (~2,500 kata) — ARGAS QUESTIONS
 
 ## Project Specs
 - **Ending**: Bittersweet
