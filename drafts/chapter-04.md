@@ -48,7 +48,7 @@ Aku tidak tahu harus membalas apa. Jari-jariku melayang di atas tombol, mencari 
 
 Akhirnya, aku memilih sederhana.
 
-*"Shintia."*
+*"Diana."*
 
 Namaku. Hanya namaku. Seolah-olah dengan mengirimkannya, aku memberinya sesuatu yang tidak bisa kuambil kembali.
 

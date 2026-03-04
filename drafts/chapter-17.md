@@ -52,13 +52,13 @@ Suara datar membacakan urutan pernikahan—hak, kewajiban, tanggung jawab. Kata-
 
 Aku duduk di samping Raka, tidak menyentuh. Jarak kecil di antara kami—seperti dinding yang tidak terlihat.
 
-"Saudara Raka," penghulu berkata. "Apakah kamu menerima saudari Shintia sebagai istri, dengan mas kawin yang disebutkan?"
+"Saudara Raka," penghulu berkata. "Apakah kamu menerima saudari Diana sebagai istri, dengan mas kawin yang disebutkan?"
 
 Raka menatapku—untuk pertama kalinya sejak prosesi dimulai. Matanya... tidak kosong. Ada sesuatu di sana. Rasa bersalah? Penyesalan? Atau... sesuatu yang lain?
 
 "Saya terima," jawabnya. Suara pelan, jelas.
 
-"Saudari Shintia," penghulu melanjutkan, menoleh kepadaku. "Apakah kamu menerima saudara Raka sebagai suami, dengan mas kawin yang disebutkan?"
+"Saudari Diana," penghulu melanjutkan, menoleh kepadaku. "Apakah kamu menerima saudara Raka sebagai suami, dengan mas kawin yang disebutkan?"
 
 Aku menatap Raka. Lelaki yang membuatku hamil dua kali. Lelaki yang tidak pernah benar-benar membantu. Lelaki yang bilang sayang tapi jarang ada.
 

@@ -66,7 +66,7 @@ Di pasar, aku beli sayur dan ikan.
 
 Ibu-ibu yang berjualan di sana sudah mengenalku—perempuan muda dengan dua anak, sering belanja sendiri, suami jarang terlihat.
 
-"Bu Shintia, mau apa hari?" Bu Ani bertanya, penjual sayur.
+"Bu Diana, mau apa hari?" Bu Ani bertanya, penjual sayur.
 
 "Iya, Bu. Sayur sama ikan."
 
@@ -76,7 +76,7 @@ Aku mengangguk, memilih ikan. Saat menunggu Bu Ani membungkus, lelaki muda lewat
 
 Aku menatap ikan di tangan, berpura-pura tidak melihat.
 
-"Bu Shintia cantik sekali ya," Bu Ani berkata tiba-tiba, suara pelan tapi cukup jelas terdengar.
+"Bu Diana cantik sekali ya," Bu Ani berkata tiba-tiba, suara pelan tapi cukup jelas terdengar.
 
 Aku menoleh, tidak mengerti.
 

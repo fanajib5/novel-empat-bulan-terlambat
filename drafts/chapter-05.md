@@ -38,7 +38,7 @@ Safina mengangkat bahu, lalu berjalan pergi. Aku sendirian di barisan—teman-te
 
 Dan itu saat aku menyadari: ini kesempatanku.
 
-*Jangan,* bisik suara di kepala. *Jangan, Shintia. Jangan.*
+*Jangan,* bisik suara di kepala. *Jangan, Diana. Jangan.*
 
 Tapi kakiku sudah bergerak.
 
@@ -50,7 +50,7 @@ Lalu aku melihatnya.
 
 Raka berdiri di sudut koridor, sendirian kali ini, tangannya di saku celana. Dia melihatku—tentu saja dia melihatku—dan senyum kecil itu muncul lagi.
 
-"Shintia."
+"Diana."
 
 Namaku di mulutnya terdengar berbeda. Lebih berat, lebih... nyata.
 

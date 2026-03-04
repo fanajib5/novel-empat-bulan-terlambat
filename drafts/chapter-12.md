@@ -68,7 +68,7 @@ Tapi bagian dari diriku bertanya: *Sampai kapan?*
 
 Dua minggu di kos, Raka menghubungi.
 
-*\"Shintia, kamu di mana? Safina bilang kamu dikeluarkan.\"*
+*\"Diana, kamu di mana? Safina bilang kamu dikeluarkan.\"*
 
 *\"Di kos.\"*
 
@@ -124,7 +124,7 @@ Di dokter, prosedurnya cepat dan dingin.
 
 "Nama ibu?"
 
-"Shintia."
+"Diana."
 
 "Nama ayah?"
 
@@ -150,7 +150,7 @@ Ibu akhirnya bicara saat kami kembali ke kos.
 
 Bukan bicara langsung—tapi bisikan saat Ayah memarkir motor.
 
-"Shintia."
+"Diana."
 
 "Iya, Bu."
 
@@ -160,7 +160,7 @@ Ibu menatapku, dan untuk pertama kalinya sejak kepulanganku, ada sesuatu selain 
 
 Aku menunduk.
 
-"Shintia, tolong." Suara ibu retak. "Aku cuma mau tahu. Siapa laki-laki yang melakukan ini ke kamu? Biar kami bisa... biar kami bisa tahu."
+"Diana, tolong." Suara ibu retak. "Aku cuma mau tahu. Siapa laki-laki yang melakukan ini ke kamu? Biar kami bisa... biar kami bisa tahu."
 
 Aku menatapnya. Di wajah ibu, ada rasa sakit yang dalam—bukan hanya karena malu, tapi karena kehilangan. Putrinya. Anak yang dia besarkan dengan kasih sayang, yang dia kirim ke pesantren dengan harapan, yang sekarang kembali dengan bayi tanpa ayah.
 
@@ -172,7 +172,7 @@ Aku menatapnya. Di wajah ibu, ada rasa sakit yang dalam—bukan hanya karena mal
 
 Tidak ada kata cinta—tidak ada kata "dia yang aku cintai". Tapi ibu mengerti. Dari cara aku menunduk, dari cara air mata mengalir, dari cara pegangan tanganku pada bayi mengencang.
 
-"Oh, Shintia..." Suara ibu lemah. "Oh, anakku..."
+"Oh, Diana..." Suara ibu lemah. "Oh, anakku..."
 
 Dia memelukku—pelukan pertama sejak kepulanganku. Pelukan yang erat, penuh tangis, penuh penyesalan dan kasih sayang yang campur aduk.
 

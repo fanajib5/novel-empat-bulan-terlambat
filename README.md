@@ -8,17 +8,17 @@
 
 ## Synopsis
 
-Shintia (28 tahun) cantik. Terlalu cantik untuk hidup dalam bayang-bayang "dosa masa lalu".
+Diana (28 tahun) cantik. Terlalu cantik untuk hidup dalam bayang-bayang "dosa masa lalu".
 
 Dua anak laki-lakinya—Arga (9) dan Rayyan (8)—adalah bukti hidup bahwa ia pernah jatuh, tapi juga bangkit.
 
-Arga lahir di tahun terakhir mondoknya, di pesantren yang sama yang kemudian mengusirnya dengan alasan "berteman melewati batas". Kelahiran itu rahasia besar: darah di lantai kamar mandi, teman sekamar yang menangis ketakutan sambil membungkus bayi dengan kain sarung. Shintia membesarkan Arga sendirian hampir setahun, di kos kumuh, sebelum akhirnya hamil lagi dan dipaksa menikah oleh keluarga.
+Arga lahir di tahun terakhir mondoknya, di pesantren yang sama yang kemudian mengusirnya dengan alasan "berteman melewati batas". Kelahiran itu rahasia besar: darah di lantai kamar mandi, teman sekamar yang menangis ketakutan sambil membungkus bayi dengan kain sarung. Diana membesarkan Arga sendirian hampir setahun, di kos kumuh, sebelum akhirnya hamil lagi dan dipaksa menikah oleh keluarga.
 
 Rayyan lahir empat bulan setelah akad nikah yang terlambat—bukti fisik bahwa "penebusan" itu hanya di atas kertas.
 
-Sekarang, pernikahan sudah berjalan. Raka "bertanggung jawab". Tapi setiap kali Arga bertanya "Mama dulu mondok di mana?", atau saat tetangga bergunjing "Anak sulungnya kok lahir duluan ya?", Shintia merasa tubuhnya yang masih indah itu seperti kutukan.
+Sekarang, pernikahan sudah berjalan. Raka "bertanggung jawab". Tapi setiap kali Arga bertanya "Mama dulu mondok di mana?", atau saat tetangga bergunjing "Anak sulungnya kok lahir duluan ya?", Diana merasa tubuhnya yang masih indah itu seperti kutukan.
 
-Dan di usia 28, Shintia mulai bertanya pada dirinya sendiri:
+Dan di usia 28, Diana mulai bertanya pada dirinya sendiri:
 Apakah pernikahan ini penebusan, atau hanya penjara baru?
 Apakah ia berhak bahagia, atau cukup "dimaafkan" saja?
 
@@ -36,7 +36,7 @@ novel-empat-bulan-terlambat/
 
 ## Characters
 
-- **Shintia** (28) - Protagonis, mantan santri, ibu dua anak
+- **Diana** (28) - Protagonis, mantan santri, ibu dua anak
 - **Raka** (30) - Suami, "bertanggung jawab" tapi cemburu buta
 - **Arga** (9) - Anak sulung, lahir di pesantren
 - **Rayyan** (8) - Anak bungsu, lahir 4 bulan setelah nikah
@@ -81,6 +81,6 @@ novel-empat-bulan-terlambat/
 ## Project Specs
 - **Ending**: Bittersweet
 - **Eksplisit Level**: 3/5 (sensual, eksplisit saat perlu, tapi fokus emosi)
-- **POV**: First person (Shintia)
+- **POV**: First person (Diana)
 - **Platform**: Wattpad
 - **Berdasarkan**: Kisah nyata (nama asli digunakan dengan izin)

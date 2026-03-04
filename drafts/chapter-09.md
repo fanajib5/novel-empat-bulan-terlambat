@@ -20,7 +20,7 @@ Bukan karena aku kurus—justru sebaliknya. Tapi tidak ada yang boleh tahu. Jadi
 
 Safina membantu. Dia selalu membantu.
 
-"Shintia lagi sakit," dia bilang ke pengurus. "Maag kronis. Sering mual."
+"Diana lagi sakit," dia bilang ke pengurus. "Maag kronis. Sering mual."
 
 Pengurus mengangguk, wajahnya simpati. "Jaga kesehatan ya. Banyak minum air."
 
@@ -64,7 +64,7 @@ Ustadzah Fatimah adalah wali kelas—perempuan lembut dengan kacamata bulat dan 
 
 Tapi hari itu, saat aku masuk ke kamarnya, ekspresinya berbeda.
 
-"Shintia, duduk."
+"Diana, duduk."
 
 Aku duduk di kursi di depan meja. Tangan dingin, jantung berdegap.
 
@@ -78,7 +78,7 @@ Aku duduk di kursi di depan meja. Tangan dingin, jantung berdegap.
 
 Dia menunduk, menatap tanganku yang gemetar di pangkuan. Lalu mengangkat kepala lagi.
 
-"Shintia, aku sudah mengajarmu tiga tahun. Aku kenal kamu."
+"Diana, aku sudah mengajarmu tiga tahun. Aku kenal kamu."
 
 Aku tidak menjawab. Tidak bisa menjawab.
 
@@ -202,7 +202,7 @@ Safina menatapku dengan mata yang cemas. "Kamu mau ke bidan?"
 
 "Terlalu berisiko. Kalau ketahuan keluar kompleks—"
 
-"Shintia." Safina menggenggam tanganku. "Kalau ada sesuatu sama kamu dan bayi, itu lebih bahaya."
+"Diana." Safina menggenggam tanganku. "Kalau ada sesuatu sama kamu dan bayi, itu lebih bahaya."
 
 Aku menatapnya lama. Dia benar. Tentu dia benar.
 
@@ -236,7 +236,7 @@ Dia menatapku lama. Lalu mengangguk, menulis resep.
 
 Saat kami keluar, dia menambahkan:
 
-"Shintia."
+"Diana."
 
 Aku berhenti, menoleh.
 

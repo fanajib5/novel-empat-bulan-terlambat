@@ -10,7 +10,7 @@ Dan di kos yang sempit, dengan tetangga yang suka menilai, itu berbahaya.
 
 Bu Yem—perempuan yang menitipkan Arga—adalah yang pertama berkomentar.
 
-"Mba Shintia, kok... kayaknya ada ya?"
+"Mba Diana, kok... kayaknya ada ya?"
 
 Aku menatapnya panik. "Apa?"
 
@@ -88,7 +88,7 @@ Aku menatap Ibu, yang masih memeluk Arga dengan mata penuh air mata. "Bu, tolong
 
 Ibu menatapku—dan untuk pertama kalinya, ada sesuatu selain dukungan di matanya.
 
-"Shintia," bisiknya. "Apa yang salah dengan kamu? Kenapa kamu lakuin ini lagi?"
+"Diana," bisiknya. "Apa yang salah dengan kamu? Kenapa kamu lakuin ini lagi?"
 
 Pertanyaan menusuk. Pertanyaan yang tidak bisa kujawab.
 
@@ -100,7 +100,7 @@ Ibu menunduk, air mata mengalir di wajah Arga yang bingung.
 
 "Aku tidak sengaja—"
 
-"Tapi kamu lakuin." Ibu menatapku. "Dua kali, Shintia. Dua kali. Tidak bisa lagi dibilang kecelakaan."
+"Tapi kamu lakuin." Ibu menatapku. "Dua kali, Diana. Dua kali. Tidak bisa lagi dibilang kecelakaan."
 
 ---
 
@@ -158,7 +158,7 @@ Keheningan lama di chat. Lalu:
 
 *Lagi.* *Masih.*
 
-*Raka:* *Astaghfirullah... Shintia, apa yang harus aku lakuin?*
+*Raka:* *Astaghfirullah... Diana, apa yang harus aku lakuin?*
 
 *\"Menikah sama aku.\"*
 

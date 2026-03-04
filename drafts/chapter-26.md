@@ -36,7 +36,7 @@ Bukan "perempuaan yang salah." Bukan "ibu dari anak haram." Bukan "istri yang di
 
 Hanya... aku.
 
-Shintia.
+Diana.
 
 Perempuan dua puluh delapan tahun. Perempuan yang membuat pilihan—baik dan buruk, benar dan salah. Perempuan yang hidup dengan konsekuensi. Perempuan yang... bertahan.
 
@@ -126,7 +126,7 @@ Aku tidak melihat diriku sebagai "istri yang dimaafkan." Aku tidak melihat dirik
 
 Aku melihat diriku sebagai... aku.
 
-Shintia. Perempuan dua puluh delapan tahun. Perempuan yang pernah membuat pilihan yang salah. Perempuan yang pernah menderita konsekuensinya. Perempuan yang sekarang... di sini.
+Diana. Perempuan dua puluh delapan tahun. Perempuan yang pernah membuat pilihan yang salah. Perempuan yang pernah menderita konsekuensinya. Perempuan yang sekarang... di sini.
 
 Masih di sini.
 
@@ -136,7 +136,7 @@ Raka menoleh lagi.
 
 Kali ini, dia benar-benar menatapku. Tidak sekilas. Tidak pura-pura.
 
-"Shintia," dia berkata pelan.
+"Diana," dia berkata pelan.
 
 "Iya."
 
@@ -248,7 +248,7 @@ Aku bukan "perempuan yang salah." Aku bukan "ibu dari anak haram." Aku bukan... 
 
 Aku cuma aku.
 
-Shintia. Perempuan dua puluh delapan tahun. Perempuan yang pernah membuat pilihan yang salah. Perempuan yang pernah menderita. Perempuan yang sekarang... di sini.
+Diana. Perempuan dua puluh delapan tahun. Perempuan yang pernah membuat pilihan yang salah. Perempuan yang pernah menderita. Perempuan yang sekarang... di sini.
 
 Masih di sini.
 

@@ -2,7 +2,7 @@
 
 Hari Sabtu, ada acara arisan RT.
 
-Biasanya aku tidak datang—lebih baik di rumah, urus anak-anak, avoid interaction yang tidak perlu. Tapi bulan ini, Bu RT datang ke rumah, bilang: "Bu Shintia harus datang. Bulan ini rumah kamu jadi tuan rumah."
+Biasanya aku tidak datang—lebih baik di rumah, urus anak-anak, avoid interaction yang tidak perlu. Tapi bulan ini, Bu RT datang ke rumah, bilang: "Bu Diana harus datang. Bulan ini rumah kamu jadi tuan rumah."
 
 Jadi aku tidak bisa menghindar.
 
@@ -22,7 +22,7 @@ Obrolan dimulai biasa.
 
 Anak sekolah. Suami kerja. Harga barang yang naik. Obrolan-Obrolan aman yang tidak menyentuh apa pun yang berbahaya.
 
-Aku duduk di sudut, kadang-kadang tersenyum saat orang tertawa, kadang-kadang mengangguk saat ada yang bertanya "Gimana Bu Shintia?"
+Aku duduk di sudut, kadang-kadang tersenyum saat orang tertawa, kadang-kadang mengangguk saat ada yang bertanya "Gimana Bu Diana?"
 
 "Baik, Bu. Alhamdulillah."
 
@@ -36,7 +36,7 @@ Tapi ada satu ibu yang tidak bisa tutup mulut.
 
 Bu Sari—perempuan yang baru pindah ke RT ini tahun lalu, yang tidak tahu sejarah lengkap keluarga kami. Dia menatapku langsung, tanpa basa-basi.
 
-"Bu Shintia, anaknya ada dua ya?"
+"Bu Diana, anaknya ada dua ya?"
 
 Aku mengangguk, menelan. "Iya, Bu."
 
@@ -82,7 +82,7 @@ Aku menatap meja, jantung berdegup.
 
 Bu RT mencoba lagi: "Bu Lestari, jangan—"
 
-"Pertanyaan saja," Bu Lestari melanjutkan, suara datar. "Kan banyak yang cerita. Anak sulung Bu Shintia lahir duluan ya?"
+"Pertanyaan saja," Bu Lestari melanjutkan, suara datar. "Kan banyak yang cerita. Anak sulung Bu Diana lahir duluan ya?"
 
 Tidak ada yang menyanggah. Tidak ada yang membela.
 

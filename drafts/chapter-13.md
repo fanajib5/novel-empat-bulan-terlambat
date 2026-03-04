@@ -74,7 +74,7 @@ Keheningan di chat. Lalu:
 
 *\"Tapi kamu tidak bisa.\"* Aku mengetik tanpa mikir. *\"Aku tahu. Kamu di pesantren. Kamu takut orang tua. Kamu tidak bisa apa-apa. Aku tahu, Raka. Aku tahu.\"*
 
-*\"Shintia, maaf. Aku cuma—\"*
+*\"Diana, maaf. Aku cuma—\"*
 
 *\"Tidak apa-apa. Cuma... capek.\"*
 
@@ -116,7 +116,7 @@ Dokter menyebut angka—lebih dari sisa uang di dompet.
 
 Aku menatap lantai, tidak bisa berkata. Tidak ada lagi. Tidak ada yang bisa dijual. Tidak ada yang bisa ditanya.
 
-"Shintia?" Suara familiar.
+"Diana?" Suara familiar.
 
 Aku menoleh. Safina berdiri di pintu, masih seragam pesantren, membawa tas ransel.
 

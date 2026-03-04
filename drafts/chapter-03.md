@@ -48,7 +48,7 @@ Pertanyaan itu muncul pertama, diikuti oleh yang lain: *Bagaimana dia tahu namak
 
 Dan yang paling menakutkan: *Kenapa aku tidak merasa takut?*
 
-"Shintia?"
+"Diana?"
 
 Aku melonjak, hampir menjatuhkan kertas itu. Safina berdiri di samping mejaku, matanya penasaran.
 
@@ -138,7 +138,7 @@ Aku tidak membuangnya. Aku juga tidak menghubungi nomor itu. Aku hanya... menyim
 
 Di kelas, aku tidak bisa fokus. Ustadz Hamid menjelaskan tentang tafsir ayat-ayat akhlak, tapi yang kudengar hanyalah suara yang bergema tanpa arti. Pikiranku melayang ke kertas di bawah bantal, ke nama yang tertulis di atasnya, ke tatapan yang tidak bisa kulupakan.
 
-"Shintia."
+"Diana."
 
 Namaku dipanggil. Aku melonjak, menoleh ke depan. Ustadz Hamid menatapku dengan alis terangkat.
 

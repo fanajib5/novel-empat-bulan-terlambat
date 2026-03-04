@@ -22,7 +22,7 @@ Hanya sebentar—antarkan Raka pulang, katanya. Tapi cukup lama untuk membuatku 
 
 Senyum ramah. Mata yang terlalu lama menatap. Suara yang terlalu ramah.
 
-"Bu Shintia cantik sekali," Andi berkata tiba-tiba, saat berdiri untuk pergi.
+"Bu Diana cantik sekali," Andi berkata tiba-tiba, saat berdiri untuk pergi.
 
 Aku menatapnya, tidak mengerti.
 

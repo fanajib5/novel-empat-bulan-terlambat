@@ -176,9 +176,9 @@ Aku menatap kata "bahagia"—kata yang terasa asing, kata yang tidak kubayangkan
 
 *\"Aku bakal dateng kok.* *Mau liat kamu jadi pengantin.*\"
 
-Aku tersenyum—senyum pertama hari itu. Safina. Satu-satunya teman yang tetap ada, yang tidak menghakimi, yang masih melihatku sebagai Shintia—bukan "perempuan hamil di pesantren", bukan "ibu tanpa suami", bukan "masalah keluarga".
+Aku tersenyum—senyum pertama hari itu. Safina. Satu-satunya teman yang tetap ada, yang tidak menghakimi, yang masih melihatku sebagai Diana—bukan "perempuan hamil di pesantren", bukan "ibu tanpa suami", bukan "masalah keluarga".
 
-Hanya Shintia.
+Hanya Diana.
 
 ---
 

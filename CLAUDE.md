@@ -8,16 +8,16 @@ This file provides guidance to Claude Code (claude.ai/code) when working with co
 
 ### Project Specs
 - **Genre**: Dark Romance, Drama Sosial, Literary Fiction
-- **POV**: Third person limited (Shintia) atau First person (Shintia)
+- **POV**: Third person limited (Diana) atau First person (Diana)
 - **Explicit Level**: 3/5 (sensual, eksplisit saat perlu, fokus emosi)
 - **Ending**: Bittersweet
 - **Timeline**: 11 tahun (flashback usia 17-18 + present usia 28)
 - **Platform**: Wattpad
 
 ### Key Characters
-- **Shintia** (28): Mantan santri pesantren, cantik, ibu dua anak laki-laki
-- **Raka** (30): Suami Shintia, "bertanggung jawab" tapi cemburu buta, lemah
-- **Arga** (9): Anak sulung, lahir di pesantren saat Shintia masih santri
+- **Diana** (28): Mantan santri pesantren, cantik, ibu dua anak laki-laki
+- **Raka** (30): Suami Diana, "bertanggung jawab" tapi cemburu buta, lemah
+- **Arga** (9): Anak sulung, lahir di pesantren saat Diana masih santri
 - **Rayyan** (8): Anak bungsu, lahir 4 bulan setelah akad nikah
 
 ### Structure
@@ -38,7 +38,7 @@ novel-empat-bulan-terlambat/
 ## Writing Guidelines
 
 ### POV & Voice
-- Third person limited (Shintia) atau first person (Shintia)
+- Third person limited (Diana) atau first person (Diana)
 - Bahasa Indonesia, gaya kolokial untuk dialog
 - Internal monologue mencerminkan konflik batin: rasa bersalah vs hasrat vs keinginan diakui
 
@@ -48,7 +48,7 @@ novel-empat-bulan-terlambat/
 - Act 3 (Present): Contemplative, bittersweet, searching
 
 ### Sensitive Content Handling
-- Tidak menghakimi Shintia sebagai "wanita nakal"
+- Tidak menghakimi Diana sebagai "wanita nakal"
 - Tidak pula memposisikan dia sebagai korban murni
 - Nuansa: hasrat adalah manusiawi, tapi konsekuensinya berat
 - Cantik bukan kutukan, tapi society membuatnya terasa begitu
@@ -80,7 +80,7 @@ novel-empat-bulan-terlambat/
 
 ## Catatan Penting
 
-**INI KISAH NYATA** — Nama "Shintia" adalah nama asli. Tangani dengan hormat:
+**INI KISAH NYATA** — Nama "Diana" adalah nama asli. Tangani dengan hormat:
 - Tidak perlu mengubah nama
 - Tapi detail lokasi pesantren sebaiknya dibuat generik
 - Hormati privasi anak-anak (jangan terlalu detail karakteristik fisik)

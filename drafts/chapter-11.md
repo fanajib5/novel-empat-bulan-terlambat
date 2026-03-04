@@ -16,7 +16,7 @@ Pagi, pengurus datang.
 
 Bukan hanya satu—tiga orang, dengan dokumen di tangan. Dokumen resmi, dengan kop surat pesantren dan tanda tangan kepala.
 
-"Shintia." Salah satu pengurus berdiri di pintu. "Tanda tangan ini."
+"Diana." Salah satu pengurus berdiri di pintu. "Tanda tangan ini."
 
 Aku mengambil kertas itu, membaca. Kalimat-kalimat formal yang tidak menyebut apa yang sebenarnya terjadi. Tidak ada kata "hamil". Tidak ada kata "melahirkan". Hanya:
 
@@ -40,7 +40,7 @@ Dia bukan santri yang biasa menunggu untuk menemani teman ke klinik atau meminja
 
 Saat melihatku keluar, dia langsung mendekat.
 
-"Shintia."
+"Diana."
 
 Kami berdiri di koridor, agak jauh dari yang lain. Arga di gendonganku, tertidur.
 
@@ -74,7 +74,7 @@ Saat turun dari motor, wajah ayah keras seperti batu. Tidak ada ekspresi—hanya
 
 Aku berdiri di depan kantor, Arga di gendongan. Mereka menatapku—seperti orang asing. Seperti anak yang tidak mereka kenal.
 
-"Shintia." Ayah berbicara pertama. Suaranya datar. "Angkat barang. Kita pulang."
+"Diana." Ayah berbicara pertama. Suaranya datar. "Angkat barang. Kita pulang."
 
 Tidak ada "Apa kabar?" Tidak ada "Aku sayang kamu." Tidak ada pelukan.
 
@@ -122,7 +122,7 @@ Pertanyaan yang sama. Pertanyaan yang kutahu akan datang.
 
 Aku tidak menjawab.
 
-"Shintia." Ayah suaranya naik, menahan marah. "Siapa? Siapa laki-laki yang melakukan ini ke kamu? Kita akan laporkan ke polisi. Kita akan—"
+"Diana." Ayah suaranya naik, menahan marah. "Siapa? Siapa laki-laki yang melakukan ini ke kamu? Kita akan laporkan ke polisi. Kita akan—"
 
 "Aku tidak mau lapor polisi."
 

@@ -82,7 +82,7 @@ Lebih lama. Lebih dalam. Lebih... lapar.
 
 Tangannya di pinggangku, menarikku lebih dekat. Tanganku di kerah bajunya, mencengkeram kain yang terasa hangat dari tubuhnya. Dan di kegelapan bawah pohon itu, dunia menyusut menjadi hanya dua orang.
 
-"Shintia," bisiknya di antara ciuman. Namaku di mulutnya terdengar seperti doa—atau kutukan.
+"Diana," bisiknya di antara ciuman. Namaku di mulutnya terdengar seperti doa—atau kutukan.
 
 "Raka..."
 
@@ -134,7 +134,7 @@ Bahwa saat semuanya selesai, aku menangis.
 
 Tidak keras—hanya air mata yang mengalir tanpa bisa kuhentikan. Dan Raka, yang masih di sampingku, tidak tahu harus berbuat apa.
 
-"Shintia..." Suaranya panik. "Kamu kenapa? Aku yang salah? Aku—"
+"Diana..." Suaranya panik. "Kamu kenapa? Aku yang salah? Aku—"
 
 "Bukan kamu." Aku menghapus air mata dengan punggung tangan. "Bukan... aku cuma..."
 
@@ -178,7 +178,7 @@ Safina menatapku saat aku duduk di sampingnya.
 
 Bohong. Lagi. Tapi kali ini, Safina tidak percaya.
 
-"Shintia." Suaranya pelan, tajam. "Kamu tidak bilang apa-apa sama aku."
+"Diana." Suaranya pelan, tajam. "Kamu tidak bilang apa-apa sama aku."
 
 "Aku—"
 
@@ -236,7 +236,7 @@ Ketika aku selesai, ada keheningan.
 
 Lalu Safina menghela napas panjang.
 
-"Shintia..." Suaranya berat. "Kamu tahu kan apa yang kamu lakukan?"
+"Diana..." Suaranya berat. "Kamu tahu kan apa yang kamu lakukan?"
 
 "Aku tahu."
 

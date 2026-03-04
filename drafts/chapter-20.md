@@ -10,7 +10,7 @@ Guru kelas empat.
 
 ---
 
-"Bu Guru Shintia!"
+"Bu Guru Diana!"
 
 Sapaan itu datang dari segala arah saat aku masuk gerbang.
 
@@ -134,7 +134,7 @@ Hari berikutnya, ibu Rina datang.
 
 Perempuan muda, mungkin umurku, dengan wajah yang ramah tapi mata yang tajam. Dia menunggu di depan kelas setelah selesai, membawa bungkusan makanan.
 
-"Bu Shintia," dia berkata saat aku keluar.
+"Bu Diana," dia berkata saat aku keluar.
 
 "Iya, Bu. Ada apa?"
 

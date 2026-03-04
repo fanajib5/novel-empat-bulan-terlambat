@@ -34,7 +34,7 @@ Terakhir kali, aku ikut acara silaturahmi ke pesantren lain—lebih kecil dari i
 
 Ketika pembukaan selesai, panitia mengumumkan jeda sarapan. Santri-santri mulai berdiri, bergerak ke arah ruang makan dengan suara gemuruh langkah kaki. Aku ikut Safina, mencari antrean yang tidak terlalu panjang.
 
-"Shintia, liat itu." Safina menoleh ke arahku, matanya menunjuk ke sesuatu di kejauhan.
+"Diana, liat itu." Safina menoleh ke arahku, matanya menunjuk ke sesuatu di kejauhan.
 
 Aku mengikuti arah pandangannya. Di sisi lain aula, ada kelompok santri laki-laki dari pesantren lain—seragam mereka berbeda, kemeja abu-abu dengan celana hitam. Mereka sedang mengobrol, tertawa, seperti sudah saling kenal lama.
 
@@ -72,7 +72,7 @@ Aku mengangguk. "Mungkin. Belum tentu juga."
 
 Itu jujur. Aku tidak tahu mau apa. Kuliah? Kerja? Menikah? Semua opsi terasa sama—semuanya terasa seperti jalan yang tidak kupilih sendiri. Seperti hidupku sudah ditentukan oleh orang lain, dan aku hanya mengikuti aliran.
 
-"Shintia itu humble banget," Safina berkomentar sambil menepuk pundakku. "Padahal dia bisa aja minta apa aja sama orang tuanya. Anak pertama, cantik, pinter. Kayaknya hidupnya gampang aja."
+"Diana itu humble banget," Safina berkomentar sambil menepuk pundakku. "Padahal dia bisa aja minta apa aja sama orang tuanya. Anak pertama, cantik, pinter. Kayaknya hidupnya gampang aja."
 
 Hidup gampang.
 
@@ -152,7 +152,7 @@ Tapi aku juga tahu—ada bagian dari diriku yang tidak ingin menutup pintu itu.
 
 Setelah shalat, rombongan kami berkumpul di halaman untuk makan siang. Aku duduk di bawah pohon rindang dengan Safina, makan nasi bungkus yang dibagikan panitia. Udara sudah lebih panas—matahari menembus awan mendung, membuat bayangan di tanah.
 
-"Shintia." Safina menoleh ke arahku dengan nada yang berbeda. "Tadi siang, kamu liat cowok yang aku tunjuk nggak?"
+"Diana." Safina menoleh ke arahku dengan nada yang berbeda. "Tadi siang, kamu liat cowok yang aku tunjuk nggak?"
 
 Aku berhenti mengunyah. "Liat."
 

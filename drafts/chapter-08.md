@@ -36,7 +36,7 @@ Bukan pertanyaan. Pernyataan.
 
 Aku menatapnya, mulut terbuka, tidak bisa berkata apa-apa.
 
-"Shintia." Suaranya pelan, tidak ada penilaian—hanya ketakutan. "Kamu hamil kan?"
+"Diana." Suaranya pelan, tidak ada penilaian—hanya ketakutan. "Kamu hamil kan?"
 
 "Tidak." Suaraku retak. "Tidak mungkin. Aku... aku tidak..."
 
@@ -46,7 +46,7 @@ Aku tidak menjawab. Karena aku tidak ingat. Karena sejak malam itu—malam di ba
 
 "Saf, aku tidak—"
 
-"Shintia." Safina mengambil tanganku, menggenggam erat. "Aku tidak akan bilang siapa-siapa. Tapi kamu harus jujur sama aku. Sekarang."
+"Diana." Safina mengambil tanganku, menggenggam erat. "Aku tidak akan bilang siapa-siapa. Tapi kamu harus jujur sama aku. Sekarang."
 
 Aku menatapnya lama. Dan tanpa kusadari, air mata mulai mengalir.
 
@@ -58,7 +58,7 @@ Tapi bagian dari diriku sudah yakin. Bagian yang sudah tahu sejak pertama kali m
 
 Aku keluar pesantren dengan alasan "beli obat maag".
 
-Izinnya mudah—aku sudah santri senior, pengurus sudah kenalku. "Shintia sakit," kataku. "Mau ke apotek sebentar."
+Izinnya mudah—aku sudah santri senior, pengurus sudah kenalku. "Diana sakit," kataku. "Mau ke apotek sebentar."
 
 Safina ikut. Tentu saja dia ikut.
 
@@ -76,7 +76,7 @@ Tidak sulit. Piss di atas strip. Tunggu tiga menit. Lihat hasilnya.
 
 Aku tidak bisa bergerak.
 
-"Shintia?" Suara Safina dari luar pintu. "Kamu oke?"
+"Diana?" Suara Safina dari luar pintu. "Kamu oke?"
 
 Aku tidak menjawab. Aku hanya menatap kotak kecil di tanganku—kotak yang akan mengubah segalanya.
 
@@ -96,11 +96,11 @@ Aku menatap hasilnya, tubuhku menjadi batu. Tidak ada pikiran—hanya kehampaan.
 
 Pintu toilet terbuka. Safina masuk, wajahnya penuh kekhawatiran.
 
-"Shintia, kamu lama sekali—"
+"Diana, kamu lama sekali—"
 
 Dia berhenti saat melihat test pack di tanganku. Matanya menemukan dua garis merah.
 
-"Oh, Shintia..."
+"Oh, Diana..."
 
 Air mata mengalir lagi. Tidak bisa kuhentikan. Aku tidak bisa berdiri—lututku memberi, dan Safina menangkapku sebelum aku jatuh.
 
@@ -114,7 +114,7 @@ Air mata mengalir lagi. Tidak bisa kuhentikan. Aku tidak bisa berdiri—lututku 
 
 "Bagaimana? Bagaimana caranya? Aku—"
 
-"Shintia." Safina menggenggam wajahku dengan kedua tangan. "Dengarkan aku. Kita akan cari jalan. Aku janji. Tapi sekarang, kamu harus tenang. Kamu harus—"
+"Diana." Safina menggenggam wajahku dengan kedua tangan. "Dengarkan aku. Kita akan cari jalan. Aku janji. Tapi sekarang, kamu harus tenang. Kamu harus—"
 
 "Aku tidak bisa tenang!" Suaraku naik, hampir berteriak. "Aku hamil, Saf! Aku hamil anak laki-laki yang bukan suamiku! Di pesantren! Kalau ketahuan—"
 
@@ -146,7 +146,7 @@ Aku mengangguk.
 
 Safina menghela napas panjang. Aku bisa melihatnya memproses—menghitung, menyimpulkan.
 
-"Shintia..." Suaranya berat. "Ini... ini besar. Ini sangat besar."
+"Diana..." Suaranya berat. "Ini... ini besar. Ini sangat besar."
 
 "Aku tahu."
 
@@ -256,7 +256,7 @@ Aku mulai berubah—bukan hanya di dalam, tapi juga di luar. Perutku masih belum
 
 Aku makan lebih sedikit, tapi tidak bisa muntah lagi—tubuhku sudah mulai menyesuaikan. Aku bangun lebih lambat, tidur lebih awal. Safina selalu di sampingku, menutupi, menjaga.
 
-"Shintia lagi maag," dia bilang ke teman-teman lain. "Lagi nggak enak badan."
+"Diana lagi maag," dia bilang ke teman-teman lain. "Lagi nggak enak badan."
 
 Mereka percaya. Atau milihan tidak peduli.
 

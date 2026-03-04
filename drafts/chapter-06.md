@@ -80,7 +80,7 @@ Saat jeda makan, Raka mendekat.
 
 Tidak langsung—dia berjalan ke arahku dengan natural, seperti tidak ada rencana. Tapi aku tahu. Aku bisa melihatnya dari cara dia mengatur langkahnya.
 
-"Shintia."
+"Diana."
 
 Namaku di mulutnya lagi. Aku tidak akan pernah bosan mendengarnya.
 
@@ -230,7 +230,7 @@ Saat kami kembali ke gedung, acara sudah hampir selesai. Aku meluncur ke tempat 
 
 Bohong. Lagi. Aku sudah kehilangan hitungan berapa kali aku berbohong hari ini.
 
-"Shintia." Safina menurunkan suaranya. "Aku bukan bodoh. Ada sesuatu sama kamu. Ada... perubahan."
+"Diana." Safina menurunkan suaranya. "Aku bukan bodoh. Ada sesuatu sama kamu. Ada... perubahan."
 
 Aku menatapnya. Matanya khawatir—tapi tidak menghakimi.
 

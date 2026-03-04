@@ -2,16 +2,16 @@
 
 ## Timeline Spesifik
 
-| Periode | Event | Usia Shintia |
+| Periode | Event | Usia Diana |
 |---------|-------|--------------|
-| 1998 | Shintia lahir | 0 |
+| 1998 | Diana lahir | 0 |
 | 2010-2011 | Masuk pesantren, kelas 1 SMP | 12-13 |
 | 2015-2016 | Kelas akhir (SMA), events novel terjadi | 17-18 |
 | 2016 | Keluar pesantren, hamil Arga | 18 |
 | 2016-2017 | Membesarkan Arga sendirian di kos | 18-19 |
 | 2017 | Hamil Rayyan, menikah dengan Raka | 19 |
 | 2017 | Rayyan lahir (4 bulan setelah nikah) | 19 |
-| 2026 | Present, Shintia usia 28 | 28 |
+| 2026 | Present, Diana usia 28 | 28 |
 
 **Catatan penting**:
 - Periode pesantren: 2010-2016
@@ -43,7 +43,7 @@
 - Klinik/bidan di Mantingan atau Ngawi kota
 - Akses ke Surabaya ±2-3 jam via Madiun
 
-### Kos Shintia (Setelah Keluar Pesantren)
+### Kos Diana (Setelah Keluar Pesantren)
 - Kemungkinan di sekitar Ngawi kota, Madiun, atau Surabaya
 - Area kumuh, sewa murah
 - Akses ke bidan/puskesmas untuk persalinan
@@ -118,10 +118,10 @@
 - Trauma psikologis berat
 - Ketahuan: pengusiran, skandal
 
-### Dalam Kasus Shintia
+### Dalam Kasus Diana
 - Arga lahir hidup, dibantu teman sekamar
 - Tidak ada kasus "pembuangan"
-- Shintia membesarkan Arga sendiri sebentar
+- Diana membesarkan Arga sendiri sebentar
 
 ---
 
@@ -154,7 +154,7 @@
 - Asumsi: cantik = mudah dapat laki-laki = berbahaya
 - Dalam konteks religius: "fitnah", "godaan"
 
-### Dalam Kasus Shintia
+### Dalam Kasus Diana
 - Dia tahu laki-laki menoleh
 - Dulu: senang, merasa diinginkan
 - Sekarang: benci, merasa itu "kutukan"
@@ -194,7 +194,7 @@
 - Overcompensating: jadi "sangat baik" untuk menebus
 - Tidak bisa menerima pujian — merasa tidak pantas
 
-### Dalam Kasus Shintia
+### Dalam Kasus Diana
 - Rutin salat, taat beribadah — tapi tidak merasa cukup
 - Setiap kali senyum ke laki-laki, langsung guilty
 - Tidak bisa melihat dirinya sebagai manusia yang berhak bahagia
@@ -213,7 +213,7 @@
 - Luar: bebas, tapi tanpa jaring pengaman
 - Santri yang diusir: sering lost, tidak tahu harus ke mana
 
-### Shintia Setelah Pesantren
+### Diana Setelah Pesantren
 - Kos kumuh, kerja serabutan
 - Besarkan bayi sendiri
 - Tidak ada dukungan keluarga di awal
@@ -229,11 +229,11 @@
 - "Aku maafkan, tapi aku tidak lupa"
 - Perlakuan berbeda dengan menantu "baik"
 
-### Dalam Kasus Shintia
+### Dalam Kasus Diana
 - Ibu Raka tahu keadaan
-- Memperlakukan Shintia seperti "pelacur yang sudah dimaafkan"
+- Memperlakukan Diana seperti "pelacur yang sudah dimaafkan"
 - Judge tanpa berkata langsung — tatapan, komentar halus
-- Shintia merasa tidak pernah cukup baik
+- Diana merasa tidak pernah cukup baik
 
 ---
 
@@ -255,13 +255,13 @@
 
 ## 11. Timeline Hukum (Kalau Dilaporkan)
 
-### Skenario: Orang tua Shintia lapor polisi
-- Kasus: hubungan seks dengan di bawah umur (kalau Shintia <18)
+### Skenario: Orang tua Diana lapor polisi
+- Kasus: hubungan seks dengan di bawah umur (kalau Diana <18)
 - Raka bisa terancam pidana
 - Tapi sering "diselesaikan" dengan pernikahan — keluarga tidak lapor
 
 ### Dalam cerita
-- Orang tua Shintia mengancam lapor
+- Orang tua Diana mengancam lapor
 - Raka dan keluarganya memilih menikahi
 - Tidak ada kasus hukum yang berlanjut
 
@@ -277,7 +277,7 @@
 ### Catatan
 - Hindari terlalu mirip dengan yang sudah ada
 - Fokus pada nuansa "penebusan yang tidak lengkap"
-- Shintia bukan "pemberontak" — dia hanya perempuan yang punya hasrat
+- Diana bukan "pemberontak" — dia hanya perempuan yang punya hasrat
 
 ---
 
@@ -290,11 +290,11 @@
 - Masjid: pusat kegiatan, menara tinggi
 - Lapangan: untuk olahraga dan muhadharah
 
-### Kos Kumuh (Shintia setelah diusir)
+### Kos Kumuh (Diana setelah diusir)
 - Kamar kecil, dinding rapuh
 - WC dalam, berbau
 - Tetangga berisik, tidak peduli
-- Bayi menangis, Shintia lelah
+- Bayi menangis, Diana lelah
 
 ### Rumah Sekarang
 - Sederhana tapi layak
@@ -306,7 +306,7 @@
 ## 14. Catatan untuk Penulisan
 
 ### Yang Harus Dihindari
-- Menghakimi Shintia sebagai "wanita nakal"
+- Menghakimi Diana sebagai "wanita nakal"
 - Menganggap Raka murni "penjahat"
 - Happy ending murahan
 - Terlalu vulgar tanpa tujuan emosional

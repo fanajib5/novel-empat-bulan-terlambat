@@ -52,7 +52,7 @@ Saat dia muncul, jantungku berdegup kencang.
 
 Tidak banyak berubah—masih tinggi, masih tampan, masih senyum yang membuat lututku lemah. Tapi ada sesuatu yang berbeda. Lebih dewasa? Lebih lelah? Aku tidak bisa bilang.
 
-"Shintia."
+"Diana."
 
 Dia memelukku—pelukan yang cepat, rahasia, tidak berlama-lama. Arga menatapnya dengan mata curiga.
 
@@ -138,7 +138,7 @@ Aku tidak menjawab. Tapi aku merasakan hal yang sama—lelah yang menumpuk, lela
 
 Raka mengambil tanganku—satu-satunya kontak fisik yang kami berani di tempat umum. Tangan yang hangat, jari yang menggenggam erat.
 
-"Aku sayang kamu, Shintia. Serius."
+"Aku sayang kamu, Diana. Serius."
 
 Aku menatapnya. Kata yang sama, kata yang indah, kata yang tidak mengubah apa-apa.
 

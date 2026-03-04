@@ -1,6 +1,6 @@
 # Character Sheets: Empat Bulan Terlambat
 
-## Shintia (Protagonis)
+## Diana (Protagonis)
 
 | Attribute | Detail |
 |-----------|--------|
@@ -40,7 +40,7 @@
 ### Konflik Sosial
 - Tetangga bergunjing: "Anak sulungnya lahir duluan ya?"
 - Ibu mertua memperlakukan seperti "pelacur yang sudah dimaafkan"
-- Raka cemburu buta setiap Shintia tersenyum ke laki-laki lain
+- Raka cemburu buta setiap Diana tersenyum ke laki-laki lain
 
 ---
 
@@ -50,10 +50,10 @@
 |-----------|--------|
 | Usia | 30 tahun (present), 18-19 tahun (flashback) |
 | Pekerjaan | Karyawan kantor (kuliah teknik dulu) |
-| Status | Suami Shintia, ayah Arga dan Rayyan |
+| Status | Suami Diana, ayah Arga dan Rayyan |
 | Kepribadian | Baik tapi lemah, mudah terintimidasi, cemburu buta |
 | Motivasi | Ingin "bersih" dari dosa, takut judgment sosial |
-| Flaw | Menikahi Shintia bukan karena cinta, tapi takut; sekarang proyeksi rasa bersalah ke Shintia via cemburu |
+| Flaw | Menikahi Diana bukan karena cinta, tapi takut; sekarang proyeksi rasa bersalah ke Diana via cemburu |
 
 ### Fisik
 - Tinggi 172 cm, kulit sawo matang
@@ -61,22 +61,22 @@
 - Tampilan rapi, kacamata
 
 ### Backstory
-- Santri dari pesantren lain, ketemu Shintia di acara muhadharah
+- Santri dari pesantren lain, ketemu Diana di acara muhadharah
 - Jatuh cinta, atau mungkin hanya hasrat? — ini ambigu
-- Pertama kali "melanggar" dengan Shintia di tahun terakhir mereka
-- Ketika tahu Shintia hamil: panic, takut orang tua, takut dosa
-- Tidak langsung menikahi — Shintia membesarkan Arga sendirian dulu
-- Setelah Shintia hamil lagi: orang tua Shintia mengancam lapor polisi
-- Akhirnya menikahi Shintia, tapi bukan karena cinta mati
+- Pertama kali "melanggar" dengan Diana di tahun terakhir mereka
+- Ketika tahu Diana hamil: panic, takut orang tua, takut dosa
+- Tidak langsung menikahi — Diana membesarkan Arga sendirian dulu
+- Setelah Diana hamil lagi: orang tua Diana mengancam lapor polisi
+- Akhirnya menikahi Diana, tapi bukan karena cinta mati
 
 ### Konflik Batin
 - **Rasa bersalah**: "Aku yang merusak hidupnya" — tapi juga "Dia yang menggaet aku"
-- **Kemunafikan**: Menikahi Shintia untuk "tanggung jawab", tapi tetap judge dia
-- **Cemburu buta**: Setiap Shintia tersenyum ke laki-laki lain, ia ingat "dulu dia juga bisa dengan aku"
+- **Kemunafikan**: Menikahi Diana untuk "tanggung jawab", tapi tetap judge dia
+- **Cemburu buta**: Setiap Diana tersenyum ke laki-laki lain, ia ingat "dulu dia juga bisa dengan aku"
 
 ### Arc
 - Awal: "Bertanggung jawab" tapi lemah
-- Tengah: Cemburu buta, memposisikan Shintia sebagai "wanita yang harus diawasi"
+- Tengah: Cemburu buta, memposisikan Diana sebagai "wanita yang harus diawasi"
 - Akhir: Mungkin ada momen awareness — atau tetap tidak berubah (bittersweet)
 
 ---
@@ -86,30 +86,30 @@
 | Attribute | Detail |
 |-----------|--------|
 | Usia | 9 tahun (kelas 4 SD) |
-| Status | Anak sulung Shintia dan Raka, lahir di pesantren |
+| Status | Anak sulung Diana dan Raka, lahir di pesantren |
 | Kepribadian | Pendiam, rajin salat, suka menggambar atau main bola sendirian |
 | Motivasi | Ingin tahu tentang masa lalu, tapi takut bertanya |
 | Flaw | Terlalu sensitif terhadap ketegangan di rumah |
 
 ### Fisik
 - Mirip Raka: tinggi untuk usianya, kulit sawo matang
-- Tapi matanya persis Shintia — sipit, dalam, sering terlihat melamun
+- Tapi matanya persis Diana — sipit, dalam, sering terlihat melamun
 
 ### Backstory
-- Lahir di kamar mandi pesantren, dibantu teman sekamar Shintia
-- Besaran pertama tahun di kos kumuh bersama Shintia
+- Lahir di kamar mandi pesantren, dibantu teman sekamar Diana
+- Besaran pertama tahun di kos kumuh bersama Diana
 - Tidak pernah tahu detail kelahirannya
 - Mulai sensitif terhadap gosip dan pertanyaan
 
 ### Konflik
 - Mulai bertanya: "Kenapa foto mama SMA jarang?"
 - Dengar obrolan nenek atau tetangga
-- Konfrontasi dengan Shintia di Act 3
+- Konfrontasi dengan Diana di Act 3
 
 ### Arc
 - Awal: Tidak sadar
 - Tengah: Mulai curiga, pertanyaan-pertanyaan kecil
-- Akhir: Mengetahui sebagian kebenaran (versi lembut dari Shintia)
+- Akhir: Mengetahui sebagian kebenaran (versi lembut dari Diana)
 
 ---
 
@@ -123,7 +123,7 @@
 | Motivasi | Ingin perhatian, ingin semua bahagia |
 
 ### Fisik
-- Lebih mirip Shintia: senyum manis, kulit putih
+- Lebih mirip Diana: senyum manis, kulit putih
 - Mata cerah, enerjik
 
 ### Role dalam Cerita
@@ -137,9 +137,9 @@
 
 | Karakter | Role |
 |----------|------|
-| **Ibu Shintia** | Konservatif, kecewa, tapi mungkin punya rahasia masa lalu sendiri |
-| **Ayah Shintia** | Marah besar saat tahu, mungkin memutus hubungan sementara |
-| **Ibu Mertua (Ibu Raka)** | Memperlakukan Shintia seperti "pelacur yang dimaafkan" |
+| **Ibu Diana** | Konservatif, kecewa, tapi mungkin punya rahasia masa lalu sendiri |
+| **Ayah Diana** | Marah besar saat tahu, mungkin memutus hubungan sementara |
+| **Ibu Mertua (Ibu Raka)** | Memperlakukan Diana seperti "pelacur yang dimaafkan" |
 | **Sahabat Pesantren** | Teman sekamar yang bantu kelahiran Arga, tahu rahasia |
 | **Tetangga Busybody** | Sumber gosip, trigger konflik sosial |
 | **Ustaz Muda / Rekan Kerja Raka** | Godaan di Act 3 (optional) |
@@ -149,23 +149,23 @@
 ## Relationship Dynamics
 
 ```
-Shintia ←→ Raka (pernikahan "tanggung jawab" + cemburu + rasa bersalah timbal balik)
+Diana ←→ Raka (pernikahan "tanggung jawab" + cemburu + rasa bersalah timbal balik)
     │
     ├─→ Arga (rahasia yang hidup + pertanyaan yang menggentar)
     │
     └─→ Rayyan (bukti "penebusan" yang tidak lengkap)
 
-Shintia ←→ Ibu Mertua (judge → "maaf" tapi tidak lupa)
+Diana ←→ Ibu Mertua (judge → "maaf" tapi tidak lupa)
 
-Shintia ←→ Sahabat Pesantren (rahasia bersama, sounding board)
+Diana ←→ Sahabat Pesantren (rahasia bersama, sounding board)
 ```
 
 ---
 
 ## Catatan Penting
 
-1. **Shintia bukan korban murni** — ia punya hasrat, ia buat pilihan
-2. **Shintia bukan antagonis** — cantiknya bukan "senjata", society yang membuatnya terasa begitu
+1. **Diana bukan korban murni** — ia punya hasrat, ia buat pilihan
+2. **Diana bukan antagonis** — cantiknya bukan "senjata", society yang membuatnya terasa begitu
 3. **Raka bukan monster** — dia lemah, munafik, tapi juga terjebak
 4. **Anak-anak adalah korban tidak langsung** — mereka tidak minta lahir dari "dosa"
 5. **Tidak ada happy ending murahan** — tapi ada acceptance yang genuine

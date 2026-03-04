@@ -30,7 +30,7 @@ Safina masuk lima belas menit kemudian.
 
 Wajah yang lebih dewasa, tapi tetap sama. Mata yang sama, senyum yang sama. Hanya pakaian yang berbeda—bukan seragam pesantren, tapi kerja kantoran.
 
-"Shintia!" Dia berdiri di meja, tidak bisa duduk lagi. "Peluk aku dong!"
+"Diana!" Dia berdiri di meja, tidak bisa duduk lagi. "Peluk aku dong!"
 
 Aku berdiri, memeluk sahabatku. Pelukan yang erat, yang lama, yang membawa kembali semua kenangan.
 
@@ -104,7 +104,7 @@ Aku menatap kopi di tanganku, tidak bisa menjawab. Kari lebih dari "hanya jalan"
 
 ---
 
-"Shintia," Safina berkata pelan. "Aku mau tanya sesuatu. Dan aku mau jawab jujur."
+"Diana," Safina berkata pelan. "Aku mau tanya sesuatu. Dan aku mau jawab jujur."
 
 Aku menatapnya, jantung berdegup.
 
@@ -172,7 +172,7 @@ Di parkiran, Safina memelukku lagi—lebih lama dari sebelumnya.
 
 Safina melepaskan pelukan, menatapku dengan mata yang serius.
 
-"Shintia, satu hal lagi."
+"Diana, satu hal lagi."
 
 Aku menunggu.
 

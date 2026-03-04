@@ -12,7 +12,7 @@ Saat gelombang pertama menghantam, aku tidak bisa menahan suara.
 
 "Ah—"
 
-Safina terbangun di sampingku. "Shintia?"
+Safina terbangun di sampingku. "Diana?"
 
 Aku tidak bisa menjawab. Aku hanya mencengkeram perut, berusaha bernapas.
 
@@ -70,7 +70,7 @@ Kontraksi datang dan pergi, masing-masing seperti gelombang yang menghancurkan. 
 
 *Keluar,* pikirku. *Dia mau keluar.*
 
-"Shintia, dengarkan aku." Safina berlutut di sampingku. "Saat kontraksi datang, dorong. Seperti mau buang air besar. Kamu mengerti?"
+"Diana, dengarkan aku." Safina berlutut di sampingku. "Saat kontraksi datang, dorong. Seperti mau buang air besar. Kamu mengerti?"
 
 Aku mengangguk, meski tidak yakin aku bisa.
 
@@ -86,7 +86,7 @@ Hanya sakit. Dan dingin. Dan kegelapan yang perlahan mengelilingi pinggiran peng
 
 ---
 
-"Shintia! Jangan pingsan! Shintia!"
+"Diana! Jangan pingsan! Diana!"
 
 Suara Safina jauh, seperti dari dasar sumur. Aku berjuang untuk tetap sadar—untuk tetap di sini, di lantai kamar mandi yang dingin.
 
@@ -110,7 +110,7 @@ Dia kecil. Sangat kecil. Merah dan berkerut dan berdarah dan... sempurna.
 
 Safina memotong tali pusar dengan gunting kuku yang dibasuh air panas. Tangannya gemetar—tapi dia tidak berhenti. Dia membungkus bayi dengan kain sarung bersih, mengelap wajahnya, memastikan dia bernapas.
 
-"Shintia." Safina meletakkan bayi di dadaku. "Lihat. Lihat dia."
+"Diana." Safina meletakkan bayi di dadaku. "Lihat. Lihat dia."
 
 Aku menatap makhluk kecil di tanganku. Matanya tertutup, mulutnya bergerak seperti mencari sesuatu. Tangannya—kecil, merah, jari-jari sempurna—bergerak di udara.
 
@@ -156,7 +156,7 @@ Arga menangis jam lima pagi.
 
 Tidak keras—tapi cukup untuk membangunkan santri lain di kamar. Aku berusaha menenangkannya, menyusui dengan susu yang baru mulai keluar, tapi suara itu sudah terdengar.
 
-"Shintia?" Suara salah satu teman sekamar. "Itu apa?"
+"Diana?" Suara salah satu teman sekamar. "Itu apa?"
 
 "Tidak ada." Suaraku panik. "Tidak ada apa-apa. Mimpi buruk."
 
@@ -174,13 +174,13 @@ Pintu kamar terbuka. Dan aku di sana, duduk di dipan dengan Arga di pelukan, tid
 
 Wajah kepala pesantren tidak menunjukkan emosi. Hanya kekecewaan yang dalam—seperti dia sudah melihat ini berkali-kali, dan setiap kali sama menyedihkannya.
 
-"Shintia," katanya. "Ikut kami ke kantor."
+"Diana," katanya. "Ikut kami ke kantor."
 
 Aku tidak berbicara. Aku hanya mengangguk, bangkit dengan kaki yang tidak bermaya, dan berjalan mengikuti mereka ke luar kamar.
 
 Di belakangku, aku bisa mendengar bisikan santri lain—kejutan, horor, penghakiman.
 
-"Shintia hamil?"
+"Diana hamil?"
 "Dari mana dapat bayi?"
 "Siapa ayahnya?"
 "Astaghfirullah..."
@@ -195,7 +195,7 @@ Di kantor kepala pesantren, aku duduk di kursi dengan Arga di pelukan.
 
 Bayiku sudah tenang sekarang—tidur setelah menangis sepanjang jalan. Wajahnya damai, tidak tahu bahwa dunia di sekitarnya sedang menghakimi ibunya.
 
-"Shintia." Kepala pesantren duduk di meja, jari-jarinya terlipat. "Ini... sangat mengejutkan."
+"Diana." Kepala pesantren duduk di meja, jari-jarinya terlipat. "Ini... sangat mengejutkan."
 
 Aku tidak menjawab.
 
@@ -209,7 +209,7 @@ Pertanyaan itu menggantung di udara. Aku tahu mereka menunggu jawaban. Aku tahu 
 
 Tapi aku tidak bisa.
 
-"Shintia." Ustadzah Fatimah berbicara, suaranya lebih lembut. "Kamu tidak sendirian. Kami bisa bantu. Tapi kamu harus jujur."
+"Diana." Ustadzah Fatimah berbicara, suaranya lebih lembut. "Kamu tidak sendirian. Kami bisa bantu. Tapi kamu harus jujur."
 
 Aku menatapnya. Matanya baik—tapi tidak cukup untuk membuatku berbicara.
 
@@ -235,7 +235,7 @@ Tidak banyak—hanya baju, kitab, beberapa foto. Safina membantuku mengemas, tan
 
 "Belum tahu."
 
-Safina berhenti mengemas, menatapku dengan mata yang intens. "Shintia. Kamu tidak bisa protect dia selamanya."
+Safina berhenti mengemas, menatapku dengan mata yang intens. "Diana. Kamu tidak bisa protect dia selamanya."
 
 "Aku tahu."
 

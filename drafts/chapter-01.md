@@ -18,7 +18,7 @@ Safina mengerang, lalu membolak-balikkan tubuh. "Lima menit..."
 
 "Tidak ada lima menit di sini." Aku sudah berdiri, mengambil sarung dan mukena dari lemari. "Azan sudah selesai."
 
-Aku dengar erangan lagi, lalu suara gesekan kain. Safina akhirnya duduk, matanya masih separuh tertutup. "Kamu terlalu rajin, Shintia."
+Aku dengar erangan lagi, lalu suara gesekan kain. Safina akhirnya duduk, matanya masih separuh tertutup. "Kamu terlalu rajin, Diana."
 
 "Bukan rajin. Takut." Aku tersenyum tipis. "Takut dimarahi Ustadzah Nurlina."
 
@@ -34,7 +34,7 @@ Dan kulit putih yang selalu menjadi masalah.
 
 Aku menatap diriku sendiri di cermin itu lebih lama dari seharusnya. Mata sipitku, hidung mancung, dagu yang runcing sedikit. Wajah ini membuat orang-orang menoleh. Dulu, saat masih SMP, aku pikir itu hal yang biasa—perempuan cantik memang dilihat orang. Tapi di pesantren, di tempat yang seharusnya "suci", aku belajar bahwa cantik itu... berbahaya.
 
-Ustadzah Husna pernah berkata, "Shintia, kamu harus jaga penampilanmu. Jangan terlalu menonjol."
+Ustadzah Husna pernah berkata, "Diana, kamu harus jaga penampilanmu. Jangan terlalu menonjol."
 
 Padahal aku tidak berbuat apa-apa. Aku hanya... punya wajah ini.
 
@@ -58,7 +58,7 @@ Setelah shalat, aku duduk sebentar untuk dzikir. Jari-jariku menghitung butiran 
 
 Atau mungkin tidak. Aku tidak tahu.
 
-"Shintia."
+"Diana."
 
 Aku menoleh. Safina sudah di sebelahku, mukena birunya masih basah di ujung-ujungnya. "Kamu lama banget dzikirnya. Mikir apa?"
 
@@ -90,7 +90,7 @@ Tapi juga berarti ada kesempatan untuk... sesuatu yang lain.
 
 Aku tidak tahu kenapa pikiran itu muncul. Mungkin karena aku sudah terlalu lama di dalam tembok ini. Mungkin karena tahun ini adalah tahun terakhirku. Mungkin karena ada bagian dari diriku yang merindukan sesuatu yang tidak bisa kusebutkan namanya.
 
-"Shintia, kamu mau ikut kan?" Safina menoleh ke arahku.
+"Diana, kamu mau ikut kan?" Safina menoleh ke arahku.
 
 "Tentu," jawabku. "Kenapa tidak?"
 
@@ -116,7 +116,7 @@ Aku tidak menjawab. Aku duduk di dipanku, memandang jendela yang menghadap ke ha
 
 "Tidak apa-apa. Aku cuma ngomong sendiri."
 
-Safina menghela napas, lalu duduk di sebelahku. "Shintia, kamu oke kan?"
+Safina menghela napas, lalu duduk di sebelahku. "Diana, kamu oke kan?"
 
 Aku menatapnya. "Maksudmu?"
 

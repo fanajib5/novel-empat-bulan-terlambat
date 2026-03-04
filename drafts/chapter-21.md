@@ -22,7 +22,7 @@ Buku yang jarang dibuka—foto-foto lama yang dikumpulkan dari sini dan sana. Ad
 
 Ada juga foto-foto yang tidak ada.
 
-Tidak ada foto Shintia masa SMA. Tidak ada foto Shintia di pesantren. Tidak ada foto masa sebelum Arga.
+Tidak ada foto Diana masa SMA. Tidak ada foto Diana di pesantren. Tidak ada foto masa sebelum Arga.
 
 "Ma," Arga berkata tiba-tiba. "Kenapa foto Mama waktu SMA jarang?"
 
