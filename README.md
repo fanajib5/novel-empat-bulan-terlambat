@@ -66,6 +66,10 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 15: Ultimatum (~3,000 kata) — POLICE OR MARRY
 - [x] Draft chapter 16: Orang Tua Raka (~2,500 kata) — RELUCTANT ACCEPTANCE
 - [x] Draft chapter 17: Akad (~2,700 kata) — WEDDING DAY
+- [x] Draft chapter 18: Empat Bulan (~2,600 kata) — RAYYAN BORN — ACT 2 COMPLETE
+
+### Act 3: Cantik yang Dimaafkan (Chapters 19-25)
+- [ ] Draft chapter 19: Sepuluh Tahun — ACT 3 START
 
 ## Project Specs
 - **Ending**: Bittersweet
