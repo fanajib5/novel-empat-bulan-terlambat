@@ -68,14 +68,15 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 17: Akad (~2,700 kata) — WEDDING DAY
 - [x] Draft chapter 18: Empat Bulan (~2,600 kata) — RAYYAN BORN — ACT 2 COMPLETE
 
-### Act 3: Cantik yang Dimaafkan (Chapters 19-25)
+### Act 3: Cantik yang Dimaafkan (Chapters 19-26)
 - [x] Draft chapter 19: Sepuluh Tahun (~2,800 kata) — ACT 3 START
-- [x] Draft chapter 20: Arga (~2,500 kata) — ARGAS QUESTIONS
-- [x] Draft chapter 21: Tetangga (~2,300 kata) — GOSSIP & JUDGMENT
-- [x] Draft chapter 22: Raka (~2,600 kata) — RAKAS JEALOUSY
-- [x] Draft chapter 23: Safina (~2,900 kata) — REUNION & HAPPINESS QUESTION
-- [x] Draft chapter 24: Konfrontasi (~2,700 kata) — ARGA KNOWS THE TRUTH
-- [x] Draft chapter 25: Cermin (~2,600 kata) — EPILOGUE — NOVEL COMPLETE
+- [x] Draft chapter 19.5: Guru (~2,400 kata) — SHINTIA AS TEACHER
+- [x] Draft chapter 21: Arga (~2,500 kata) — ARGAS QUESTIONS
+- [x] Draft chapter 22: Tetangga (~2,300 kata) — GOSSIP & JUDGMENT
+- [x] Draft chapter 23: Raka (~2,600 kata) — RAKAS JEALOUSY
+- [x] Draft chapter 24: Safina (~2,900 kata) — REUNION & HAPPINESS QUESTION
+- [x] Draft chapter 25: Konfrontasi (~2,700 kata) — ARGA KNOWS THE TRUTH
+- [x] Draft chapter 26: Cermin (~2,600 kata) — EPILOGUE — NOVEL COMPLETE
 
 ## Project Specs
 - **Ending**: Bittersweet
