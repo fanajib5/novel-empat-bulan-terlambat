@@ -69,7 +69,7 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 18: Empat Bulan (~2,600 kata) — RAYYAN BORN — ACT 2 COMPLETE
 
 ### Act 3: Cantik yang Dimaafkan (Chapters 19-25)
-- [ ] Draft chapter 19: Sepuluh Tahun — ACT 3 START
+- [x] Draft chapter 19: Sepuluh Tahun (~2,800 kata) — ACT 3 START
 
 ## Project Specs
 - **Ending**: Bittersweet
