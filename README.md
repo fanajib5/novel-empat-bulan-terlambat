@@ -60,6 +60,7 @@ novel-empat-bulan-terlambat/
 
 ### Act 2: Pernikahan yang Terlambat (Chapters 11-18)
 - [x] Draft chapter 11: Pengusiran (~2,400 kata) — ACT 2 START
+- [x] Draft chapter 12: Keluarga (~2,700 kata) — BIRTH CERTIFICATE
 
 ## Project Specs
 - **Ending**: Bittersweet
