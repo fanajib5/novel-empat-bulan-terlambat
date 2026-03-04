@@ -72,6 +72,7 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 19: Sepuluh Tahun (~2,800 kata) — ACT 3 START
 - [x] Draft chapter 20: Arga (~2,500 kata) — ARGAS QUESTIONS
 - [x] Draft chapter 21: Tetangga (~2,300 kata) — GOSSIP & JUDGMENT
+- [x] Draft chapter 22: Raka (~2,600 kata) — RAKAS JEALOUSY
 
 ## Project Specs
 - **Ending**: Bittersweet
