@@ -4,7 +4,7 @@
 
 **Target**: Novel dewasa 18+, Wattpad, 250-300 halaman
 
-**Status**: Pre-writing Complete
+**Status**: COMPLETE — 25 Chapters (~70,000 words)
 
 ## Synopsis
 
@@ -75,6 +75,7 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 22: Raka (~2,600 kata) — RAKAS JEALOUSY
 - [x] Draft chapter 23: Safina (~2,900 kata) — REUNION & HAPPINESS QUESTION
 - [x] Draft chapter 24: Konfrontasi (~2,700 kata) — ARGA KNOWS THE TRUTH
+- [x] Draft chapter 25: Cermin (~2,600 kata) — EPILOGUE — NOVEL COMPLETE
 
 ## Project Specs
 - **Ending**: Bittersweet
