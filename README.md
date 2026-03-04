@@ -58,6 +58,9 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 9: Menyembunyikan (~3,000 kata) — HIDING PREGNANCY
 - [x] Draft chapter 10: Kelahiran (~3,300 kata) — ARGA BORN — ACT 1 COMPLETE
 
+### Act 2: Pernikahan yang Terlambat (Chapters 11-18)
+- [x] Draft chapter 11: Pengusiran (~2,400 kata) — ACT 2 START
+
 ## Project Specs
 - **Ending**: Bittersweet
 - **Eksplisit Level**: 3/5 (sensual, eksplisit saat perlu, tapi fokus emosi)
