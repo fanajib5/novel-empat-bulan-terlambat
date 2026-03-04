@@ -63,6 +63,7 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 12: Keluarga (~2,700 kata) — BIRTH CERTIFICATE
 - [x] Draft chapter 13: Kos (~3,000 kata) — SURVIVAL MODE
 - [x] Draft chapter 14: Setahun (~3,100 kata) — SECOND PREGNANCY
+- [x] Draft chapter 15: Ultimatum (~3,000 kata) — POLICE OR MARRY
 
 ## Project Specs
 - **Ending**: Bittersweet
