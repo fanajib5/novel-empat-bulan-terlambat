@@ -73,6 +73,7 @@ novel-empat-bulan-terlambat/
 - [x] Draft chapter 20: Arga (~2,500 kata) — ARGAS QUESTIONS
 - [x] Draft chapter 21: Tetangga (~2,300 kata) — GOSSIP & JUDGMENT
 - [x] Draft chapter 22: Raka (~2,600 kata) — RAKAS JEALOUSY
+- [x] Draft chapter 23: Safina (~2,900 kata) — REUNION & HAPPINESS QUESTION
 
 ## Project Specs
 - **Ending**: Bittersweet
